@@ -1,5 +1,5 @@
 ---
-location: Water Damage Restoration Brookhaven, MS
+location: Brookhaven, MS
 mapUrl: https://www.google.com/maps/embed?pb=!1m18!1m12!1m3!1d108759.34140880762!2d-90.52214546619992!3d31.586467112293192!2m3!1f0!2f0!3f0!3m2!1i1024!2i768!4f13.1!3m3!1m2!1s0x8627d7874d511783%3A0x18255854080d0bc9!2sBrookhaven%2C%20MS%2039601%2C%20USA!5e0!3m2!1sen!2sph!4v1728660032850!5m2!1sen!2sph
 pageTitle: Water Damage Restoration Brookhaven, MS
 description: Brookhaven, MS has great scenery and a great community but it also
