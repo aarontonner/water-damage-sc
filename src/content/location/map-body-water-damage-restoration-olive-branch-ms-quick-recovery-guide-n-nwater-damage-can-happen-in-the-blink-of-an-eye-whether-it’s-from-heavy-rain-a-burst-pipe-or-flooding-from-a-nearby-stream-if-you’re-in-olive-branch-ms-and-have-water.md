@@ -1,5 +1,5 @@
 ---
-location: Water Damage Restoration Hattiesburg, MS
+location: Hattiesburg, MS
 mapUrl: https://www.google.com/maps/embed?pb=!1m18!1m12!1m3!1d109097.39153865658!2d-89.3204545!3d31.29563255!2m3!1f0!2f0!3f0!3m2!1i1024!2i768!4f13.1!3m3!1m2!1s0x889cdc49d5a828df%3A0x74b1bf922d1cb5ca!2sHattiesburg%2C%20MS%2C%20USA!5e0!3m2!1sen!2sph!4v1728659007183!5m2!1sen!2sph
 pageTitle: Water Damage Restoration Hattiesburg, MS
 description: "Hattiesburg is beautiful and full of life but it’s also prone to
