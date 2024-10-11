@@ -1,5 +1,5 @@
 ---
-location: Water Damage Restoration Madison, MS
+location: Madison, MS
 mapUrl: https://www.google.com/maps/embed?pb=!1m18!1m12!1m3!1d215724.48186786467!2d-90.50196040514932!3d32.34689585897496!2m3!1f0!2f0!3f0!3m2!1i1024!2i768!4f13.1!3m3!1m2!1s0x8629d17940d26c33%3A0x78839bfac2045b85!2sMadison%2C%20MS%2039110%2C%20USA!5e0!3m2!1sen!2sph!4v1728659773946!5m2!1sen!2sph
 pageTitle: Water Damage Restoration Madison, MS
 description: "Madison, MS has its parks and neighborhoods but can also get water
