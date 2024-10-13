@@ -47,7 +47,7 @@ Mold is a big problem after water damage. The Martinez’s called us after they 
 ## What to Expect During Water Damage Restoration
 
 Knowing what to expect can help alleviate your worries. The Parker’s had many questions after water damage. We walked them through each step from assessment to cleanup to repairs. We’ll keep you informed and comfortable throughout the process. Need trusted restoration services in Aiken? Call us!
-[(843) 547-3714](tel:8435473714)]
+[(843) 547-3714](tel:8435473714)
 
 
 
