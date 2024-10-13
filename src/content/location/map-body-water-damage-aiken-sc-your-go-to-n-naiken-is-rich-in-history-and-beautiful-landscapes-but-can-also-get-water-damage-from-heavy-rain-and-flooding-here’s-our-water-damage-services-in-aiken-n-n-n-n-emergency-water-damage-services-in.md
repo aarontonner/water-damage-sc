@@ -28,7 +28,7 @@ Aiken is rich in history and beautiful landscapes but can also get water damage 
 ## Emergency Water Damage Services in Aiken, SC
 
 When the Thompson’s home flooded after a sudden rainstorm they called us. We arrived on site to assess the damage and started the restoration process. We’re 24/7 so Aiken residents have help when they need it. Call us! 
-[(843) 547-3714](tel:8435473714)]
+[(843) 547-3714](tel:8435473714)
 
 
 
