@@ -1,18 +1,18 @@
 ---
 location: Aiken, SC
 mapUrl: https://www.google.com/maps/embed?pb=!1m18!1m12!1m3!1d212855.68386191758!2d-81.89036628134127!3d33.5307638577863!2m3!1f0!2f0!3f0!3m2!1i1024!2i768!4f13.1!3m3!1m2!1s0x88f84d1a70c4815d%3A0xb5330af448d9a45b!2sAiken%2C%20SC%2C%20USA!5e0!3m2!1sen!2sph!4v1728665894914!5m2!1sen!2sph
-pageTitle: "Water Damage Restoration Aiken, SC:"
+pageTitle: Water Damage Restoration Aiken, SC
 description: "Aiken is rich in history and beautiful landscapes but can also get
   water damage from heavy rain and flooding. "
-heroTitle: "Water Damage Restoration Aiken, SC:"
+heroTitle: Water Damage Restoration Aiken, SC
 heroText: Aiken is rich in history and beautiful landscapes but can also get
   water damage from heavy rain and flooding. Here’s our water damage services in
   Aiken.
-heroAlt: "Water Damage Restoration Aiken, SC:"
+heroAlt: Water Damage Restoration Aiken, SC
 tags:
   - location
 image: /assets/images/blog/landing.jpg
-imageAlt: "Water Damage Restoration Aiken, SC:"
+imageAlt: Water Damage Restoration Aiken, SC
 summaryTitle: Call us now, and let us bring your home back to its best
   condition—fast, reliable service is just a phone call away!
 summaryText: Aiken homeowners need to be aware of their water damage risks and
@@ -27,7 +27,7 @@ Aiken is rich in history and beautiful landscapes but can also get water damage 
 
 ## Emergency Water Damage Services in Aiken, SC
 
-When the Thompson’s home flooded after a sudden rainstorm they called us. We arrived on site to assess the damage and started the restoration process. We’re 24/7 so Aiken residents have help when they need it. Call us! (843) 547-3714](tel:8435473714)
+When the Thompson’s home flooded after a sudden rainstorm they called us. We arrived on site to assess the damage and started the restoration process. We’re 24/7 so Aiken residents have help when they need it. Call us! [(843) 547-3714](tel:8435473714)]
 
 
 
