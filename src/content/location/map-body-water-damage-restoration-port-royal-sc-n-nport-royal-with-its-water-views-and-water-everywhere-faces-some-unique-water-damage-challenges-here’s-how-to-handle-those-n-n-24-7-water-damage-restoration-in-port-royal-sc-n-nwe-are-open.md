@@ -22,7 +22,9 @@ Port Royal with its water views and water everywhere faces some unique water dam
 
 ## 24/7 Water Damage Restoration in Port Royal, SC
 
-We are open 24/7. When the Harris family had storm surge flooding, we were on site in 30 minutes to start the mitigation. We know water damage is time sensitive in this coastal town. Call us! (843) 547-3714](tel:8435473714)
+We are open 24/7. When the Harris family had storm surge flooding, we were on site in 30 minutes to start the mitigation. We know water damage is time sensitive in this coastal town. Call us! 
+
+[(843) 547-3714](tel:8435473714)
 
 ## Water Damage Risks in Port Royal Homes
 
@@ -48,7 +50,7 @@ If you have water damage:
 
 1. Turn Off Power: Safety first; no electrocution.
 2. Document Everything: Photos and notes for insurance.
-3. Call us: We’ll walk you through the process like we did for the Roberts family. (843) 547-3714](tel:8435473714)
+3. Call us: We’ll walk you through the process like we did for the Roberts family. [(843) 547-3714](tel:8435473714)
 
 These will help.
 
