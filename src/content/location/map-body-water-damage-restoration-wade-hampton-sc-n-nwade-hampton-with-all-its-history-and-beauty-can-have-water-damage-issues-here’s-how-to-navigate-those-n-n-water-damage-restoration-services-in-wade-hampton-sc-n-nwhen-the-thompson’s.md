@@ -22,7 +22,9 @@ Wade Hampton with all its history and beauty can have water damage issues. Here�
 
 ## Water Damage Restoration Services in Wade Hampton, SC
 
-When the Thompson’s basement flooded from heavy rain they called us. Our emergency team was there within the hour. In Wade Hampton where storms can pop up out of nowhere having a trusted restoration company is key. Call us! (843) 547-3714](tel:8435473714)
+When the Thompson’s basement flooded from heavy rain they called us. Our emergency team was there within the hour. In Wade Hampton where storms can pop up out of nowhere having a trusted restoration company is key. Call us! 
+
+[(843) 547-3714](tel:8435473714)
 
 ## Causes of Water Damage in Wade Hampton Homes
 
@@ -49,7 +51,7 @@ If you have water damage:
 
 1. Shut Off the Water: Prevents more flooding.
 2. Document the Damage: Take pictures for insurance purposes.
-3. Call us: Our team will walk you through the process, we did for the Wilson’s after their flood. (843) 547-3714](tel:8435473714)
+3. Call us: Our team will walk you through the process, we did for the Wilson’s after their flood. [(843) 547-3714](tel:8435473714)
 
 Act fast to minimize damage and cost.
 
