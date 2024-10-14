@@ -26,9 +26,9 @@ Clemson, SC is a great community and beautiful around Clemson University. But it
 
 ## Emergency Water Damage Restoration in Clemson, SC
 
-When a storm hit Clemson, the Johnson’s got home and found their basement flooded. They called our emergency water damage restoration service. We showed up in an hour and assessed and mitigated the damage. This quick response is key to preventing further damage to homes in Clemson. (843) 547-3714](tel:8435473714)
+When a storm hit Clemson, the Johnson’s got home and found their basement flooded. They called our emergency water damage restoration service. We showed up in an hour and assessed and mitigated the damage. This quick response is key to preventing further damage to homes in Clemson. 
 
-
+[(843) 547-3714](tel:8435473714)
 
 ## Common Sources of Water Damage in Clemson Homes
 
@@ -44,9 +44,9 @@ With Clemson’s humidity, mold can grow fast after water damage. The Thompson�
 
 ## What to Do Immediately After Water Damage in Clemson
 
-If you have water damage, you need to act fast. The Smith’s found water in their kitchen after a pipe burst. They turned off the water and documented the damage before they called us. We walked them through the process and emphasized that quick action is key to minimizing damage. (843) 547-3714](tel:8435473714)
+If you have water damage, you need to act fast. The Smith’s found water in their kitchen after a pipe burst. They turned off the water and documented the damage before they called us. We walked them through the process and emphasized that quick action is key to minimizing damage. 
 
-
+[(843) 547-3714](tel:8435473714)
 
 ## How to Choose the Best Water Damage Restoration Company in Clemson
 
