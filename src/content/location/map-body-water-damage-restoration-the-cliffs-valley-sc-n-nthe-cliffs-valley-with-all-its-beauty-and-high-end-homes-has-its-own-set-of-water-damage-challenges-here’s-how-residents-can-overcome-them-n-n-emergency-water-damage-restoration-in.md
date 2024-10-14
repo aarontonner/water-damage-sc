@@ -24,7 +24,9 @@ The Cliffs Valley with all its beauty and high end homes has its own set of wate
 
 ## Emergency Water Damage Restoration in The Cliffs Valley, SC
 
-When the Mitchell’s had a sudden roof leak due to snow, they called us. Our emergency team showed up fast to assess the situation and start the process. Time is of the essence here where weather can be extreme and cause a lot of damage. Call us now! (843) 547-3714](tel:8435473714)
+When the Mitchell’s had a sudden roof leak due to snow, they called us. Our emergency team showed up fast to assess the situation and start the process. Time is of the essence here where weather can be extreme and cause a lot of damage. Call us now! 
+
+[(843) 547-3714](tel:8435473714)
 
 ## How to deal with Water Damage from Floods in The Cliffs Valley
 
@@ -42,7 +44,9 @@ Mold can grow fast after water damage. After fixing the Smith’s leak we implem
 * Thorough Cleaning of Affected Areas: Using special solutions to remove mold spores.
 * Sealing Leaks: To prevent future water intrusion.
 
-These are key to a healthy living space. Give us a call! (843) 547-3714](tel:8435473714)
+These are key to a healthy living space. Give us a call! 
+
+[(843) 547-3714](tel:8435473714)
 
 ## What to Expect during Water Damage Restoration in The Cliffs Valley
 
