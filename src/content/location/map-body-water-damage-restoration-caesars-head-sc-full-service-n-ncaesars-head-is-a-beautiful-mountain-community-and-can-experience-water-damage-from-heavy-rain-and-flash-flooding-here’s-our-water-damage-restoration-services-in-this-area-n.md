@@ -26,9 +26,9 @@ Cayce with the Congaree River running through it can have some unique water dama
 
 ## 24/7 Water Damage Restoration in Cayce, SC
 
-When the Green’s found a leak in their basement they panicked. They called our 24/7 service and we showed up to assess the situation. Our fast response is key for Cayce residents who need help now. Call us! (843) 547-3714](tel:8435473714)
+When the Green’s found a leak in their basement they panicked. They called our 24/7 service and we showed up to assess the situation. Our fast response is key for Cayce residents who need help now. Call us! 
 
-
+[(843) 547-3714](tel:8435473714)
 
 ## Water Damage Risks in Cayce Homes
 
@@ -38,9 +38,9 @@ Cayce homes can be prone to water damage from heavy rain and river flooding. The
 
 ## Preventing Mold After Water Damage in Cayce, SC
 
-In Cayce’s humid climate mold can grow fast after water damage. The Carter’s had a mold issue after a leak went unnoticed in their bathroom. We provided mold remediation services and tips on how to keep their home mold free. Regular inspections make all the difference! Give us a call! (843) 547-3714](tel:8435473714)
+In Cayce’s humid climate mold can grow fast after water damage. The Carter’s had a mold issue after a leak went unnoticed in their bathroom. We provided mold remediation services and tips on how to keep their home mold free. Regular inspections make all the difference! Give us a call! 
 
-
+[(843) 547-3714](tel:8435473714)
 
 ## What to Do When You Have Water Damage in Cayce
 
