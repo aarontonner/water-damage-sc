@@ -23,7 +23,9 @@ North Charleston is an urban area with waterways so beautiful, it's water damage
 
 ## Fast Water Damage Restoration in North Charleston, SC
 
-We respond fast to water damage. When the Harris family had a busted pipe they called us. We got there quickly, minimized the damage and started the restoration process right away. Give us a call! (843) 547-3714](tel:8435473714)
+We respond fast to water damage. When the Harris family had a busted pipe they called us. We got there quickly, minimized the damage and started the restoration process right away. Give us a call! 
+
+[(843) 547-3714](tel:8435473714)
 
 ## Water Damage in North Charleston Homes
 
@@ -49,7 +51,7 @@ To restore water damage:
 
 1. Turn off the water: This will stop more water from coming in.
 2. Document the damage: This will help with your insurance claim.
-3. Call us: We’ll walk you through the process. (843) 547-3714](tel:8435473714)
+3. Call us: We’ll walk you through the process. [(843) 547-3714](tel:8435473714)
 
 The Thompson’s did it with our help.
 
