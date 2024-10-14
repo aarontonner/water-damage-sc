@@ -26,9 +26,9 @@ Burton, SC is a nature lover's paradise but can get water damage from heavy rain
 
 ## Fast Response Water Damage Restoration in Burton, SC
 
-When Garcia's home flooded after a rainstorm the family was overwhelmed. They called our fast response service and we showed up to assess and mitigate the damage. We pride ourselves on fast service so Burton residents have help when they need it. Give us a call! (843) 547-3714](tel:8435473714)
+When Garcia's home flooded after a rainstorm the family was overwhelmed. They called our fast response service and we showed up to assess and mitigate the damage. We pride ourselves on fast service so Burton residents have help when they need it. Give us a call! 
 
-
+[(843) 547-3714](tel:8435473714)
 
 ## Common Causes of Water Damage in Burton Homes
 
@@ -38,9 +38,9 @@ In Burton, common causes of water damage are roof leaks, plumbing failures and f
 
 ## Mold Remediation After Water Damage in Burton, SC
 
-Mold can be a big problem after water damage. The Walker’s faced this issue when a leak went unnoticed in their basement. We provided full mold remediation services and educated them on how to prevent future mold growth such as proper ventilation. If you suspect mold, call us today! (843) 547-3714](tel:8435473714)
+Mold can be a big problem after water damage. The Walker’s faced this issue when a leak went unnoticed in their basement. We provided full mold remediation services and educated them on how to prevent future mold growth such as proper ventilation. If you suspect mold, call us today! 
 
-
+[(843) 547-3714](tel:8435473714)
 
 ## Steps to Water Damage Restoration in Burton
 
