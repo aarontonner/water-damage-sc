@@ -23,7 +23,9 @@ Surrounded by water and wetlands Ridgeland has its own set of water damage chall
 
 ## Fast Water Damage Restoration in Ridgeland, SC
 
-We prioritize fast response to water damage. When the Thompson family’s home flooded from a nearby creek after a heavy rain our team was on site within the hour to assess and contain the damage. Call us! (843) 547-3714](tel:8435473714)
+We prioritize fast response to water damage. When the Thompson family’s home flooded from a nearby creek after a heavy rain our team was on site within the hour to assess and contain the damage. Call us! 
+
+[(843) 547-3714](tel:8435473714)
 
 ## Water Damage in Ridgeland Homes
 
@@ -49,7 +51,7 @@ To restore water damage follow these steps:
 
 1. Shut Off the Water: This will stop the flooding.
 2. Document the Damage: Photos are key for insurance claims.
-3. Call us: We’ll walk you through the process, we did for the Garcia family. (843) 547-3714](tel:8435473714)
+3. Call us: We’ll walk you through the process, we did for the Garcia family. [(843) 547-3714](tel:8435473714)
 
 These are critical to a quick recovery.
 
