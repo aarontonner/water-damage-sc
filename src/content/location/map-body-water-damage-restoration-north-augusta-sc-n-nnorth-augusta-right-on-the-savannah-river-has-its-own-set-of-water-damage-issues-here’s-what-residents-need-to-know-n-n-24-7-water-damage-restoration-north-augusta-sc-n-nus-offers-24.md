@@ -38,7 +38,9 @@ North Augusta homeowners need to be aware of:
 * Flooding from the Savannah River: The river being right there increases the risk of flooding during big rain storms.
 * Old Plumbing: The Robinson’s had extensive damage from old pipes bursting during a storm.
 
-Being proactive about these risks will help homeowners take preventative measures. call us! (843) 547-3714](tel:8435473714)
+Being proactive about these risks will help homeowners take preventative measures. Call us! 
+
+[(843) 547-3714](tel:8435473714)
 
 ## Mold Prevention Tips After Water Damage North Augusta, SC
 
@@ -56,7 +58,7 @@ If you have water damage:
 
 1. Turn off the water: This is key to stop more flooding.
 2. Document the damage: Photos will help with insurance claims.
-3. Call us. We'll guide you through the whole process. (843) 547-3714](tel:8435473714)
+3. Call us. We'll guide you through the whole process. [(843) 547-3714](tel:8435473714)
 
 The Brown’s did water damage the right way.
 
