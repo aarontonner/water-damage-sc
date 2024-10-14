@@ -31,8 +31,9 @@ Between the Blue Ridge Mountains and the city of Greenville, Greer gets its fair
 
 ## Emergency Water Damage Restoration Greer, SC
 
-When the Thompson’s basement flooded after a big rain storm, they were freaking out. They called us and we were on site within the hour. We extracted the water and started the drying process. Our 24/7 emergency water damage restoration services means Greer homeowners can get help any time of day or night. Call us! (843) 547-3714](tel:8435473714)
+When the Thompson’s basement flooded after a big rain storm, they were freaking out. They called us and we were on site within the hour. We extracted the water and started the drying process. Our 24/7 emergency water damage restoration services means Greer homeowners can get help any time of day or night. Call us! 
 
+[(843) 547-3714](tel:8435473714)
 
 ## Water Damage in Greer Homes
 
@@ -48,9 +49,9 @@ Greer’s humid climate means mold prevention is key. After the Anderson’s had
 
 ## What to Do Immediately After Water Damage in Greer, SC
 
-Knowing what to do immediately after water damage can save your home. The Martins learned the hard way when they had flooding after a big rain. They turned off their electricity and called us right away. We walked them through the process and had them document the damage and start the clean up. If you ever have water damage, remember: act fast, turn off power sources and call professionals. Give us a call! (843) 547-3714](tel:8435473714)
+Knowing what to do immediately after water damage can save your home. The Martins learned the hard way when they had flooding after a big rain. They turned off their electricity and called us right away. We walked them through the process and had them document the damage and start the clean up. If you ever have water damage, remember: act fast, turn off power sources and call professionals. Give us a call! 
 
-
+[(843) 547-3714](tel:8435473714)
 
 ## How to Choose the Best Water Damage Restoration Company in Greer
 
