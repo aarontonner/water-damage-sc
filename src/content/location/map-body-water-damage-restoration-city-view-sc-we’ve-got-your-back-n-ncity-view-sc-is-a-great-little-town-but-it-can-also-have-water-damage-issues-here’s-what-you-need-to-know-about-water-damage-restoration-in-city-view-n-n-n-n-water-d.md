@@ -33,9 +33,9 @@ When the Brown’s pipe burst suddenly they called for emergency water damage re
 
 ## Common Water Damage Situations in City View Homes
 
-City View homes can experience water damage from many sources including plumbing failures, storm damage and flooding. The Robinson’s had flooding in their home during a big storm and called us for help. Knowing these risks can help homeowners be proactive. Give us a call! (843) 547-3714](tel:8435473714)
+City View homes can experience water damage from many sources including plumbing failures, storm damage and flooding. The Robinson’s had flooding in their home during a big storm and called us for help. Knowing these risks can help homeowners be proactive. Give us a call! 
 
-
+[(843) 547-3714](tel:8435473714)
 
 ## Mold Prevention Tips After Water Damage in City View, SC
 
@@ -51,9 +51,9 @@ Knowing what to do after water damage is key. The Hall’s took action fast afte
 
 ## How to Choose a Water Damage Restoration Company in City View
 
-Finding a good restoration company can be tough. The Young’s chose us because of our local presence and customer service. We provided thorough inspections and restoration services and made them feel supported throughout the process. Need help in City View? Call us! (843) 547-3714](tel:8435473714)
+Finding a good restoration company can be tough. The Young’s chose us because of our local presence and customer service. We provided thorough inspections and restoration services and made them feel supported throughout the process. Need help in City View? Call us! 
 
-
+[(843) 547-3714](tel:8435473714)
 
 ## Water Damage Restoration Costs in City View, SC
 
