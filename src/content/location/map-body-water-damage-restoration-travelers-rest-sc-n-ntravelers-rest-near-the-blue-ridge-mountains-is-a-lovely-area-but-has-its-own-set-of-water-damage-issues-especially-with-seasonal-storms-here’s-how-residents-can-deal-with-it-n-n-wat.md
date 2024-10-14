@@ -24,7 +24,9 @@ Travelers Rest, near the Blue Ridge Mountains, is a lovely area but has its own 
 
 ## Water Damage Emergency Travelers Rest, SC
 
-When the Johnsons had a water leak due to a burst pipe during a cold snap they called us. Our emergency team arrived fast to assess and contain the damage. Time is of the essence in Travelers Rest where weather can cause sudden plumbing issues. Call us! (843) 547-3714](tel:8435473714)
+When the Johnsons had a water leak due to a burst pipe during a cold snap they called us. Our emergency team arrived fast to assess and contain the damage. Time is of the essence in Travelers Rest where weather can cause sudden plumbing issues. Call us! 
+
+[(843) 547-3714](tel:8435473714)
 
 ## Water Damage Scenarios in Travelers Rest Homes
 
@@ -48,7 +50,7 @@ These are important for a healthy living space.
 
 1. Turn Off the Water: Stop the flooding.
 2. Document the Damage: Take pictures for insurance.
-3. Call us: We’ll walk you through the process, just like we did for the Martin’s. (843) 547-3714](tel:8435473714)
+3. Call us: We’ll walk you through the process, just like we did for the Martin’s. [(843) 547-3714](tel:8435473714)
 
 These are key to speedy recovery.
 
