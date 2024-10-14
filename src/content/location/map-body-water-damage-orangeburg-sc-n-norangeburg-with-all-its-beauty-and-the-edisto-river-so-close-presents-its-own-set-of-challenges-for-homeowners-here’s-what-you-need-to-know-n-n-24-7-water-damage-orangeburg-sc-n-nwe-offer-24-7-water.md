@@ -31,8 +31,9 @@ Common causes of water damage:
 * Flooding from the Edisto River: The river so close increases flood risk during heavy rain.
 * Aging Plumbing Systems: The Martinez’s had severe damage from old pipes failing.
 
-Knowing these risks can help homeowners take preventative measures. Call us! (843) 547-3714](tel:8435473714)
+Knowing these risks can help homeowners take preventative measures. Call us! 
 
+[(843) 547-3714](tel:8435473714)
 
 ## Preventing Mold After Water Damage in Orangeburg, SC
 
@@ -44,7 +45,7 @@ If you have water damage follow these steps:
 
 1. Turn off the water supply: This will stop further flooding.
 2. Document the damage for insurance purposes.
-3. Call us: We’ll be with you every step of the way. (843) 547-3714](tel:8435473714)
+3. Call us: We’ll be with you every step of the way. [(843) 547-3714](tel:8435473714)
 
 The Taylor’s did water damage and followed these steps.
 
