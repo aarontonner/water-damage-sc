@@ -24,7 +24,9 @@ Shell Point being waterfront properties and scenic views has water damage challe
 
 ## 24/7 Water Damage Restoration Shell Point, SC
 
-When the Johnson family had a sudden leak from a seawall breach they called us. Our emergency team was on site fast to assess and mitigate the damage. Quick response is key in this coastal area where weather can change fast and cause flooding. Call us! (843) 547-3714](tel:8435473714)
+When the Johnson family had a sudden leak from a seawall breach they called us. Our emergency team was on site fast to assess and mitigate the damage. Quick response is key in this coastal area where weather can change fast and cause flooding. Call us! 
+
+[(843) 547-3714](tel:8435473714)
 
 ## Water Damage Situations in Shell Point Homes
 
@@ -48,7 +50,7 @@ These are important for a healthy living space.
 
 1. Turn Off the Water: This will stop the flooding.
 2. Document the Damage: Take photos for insurance claims.
-3. Call us: We will walk you through the process, like we did for the Clark family.(843) 547-3714](tel:8435473714)
+3. Call us: We will walk you through the process, like we did for the Clark family. [(843) 547-3714](tel:8435473714)
 
 These will help speed up the process.
 
