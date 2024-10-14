@@ -33,7 +33,9 @@ Residents should be aware of:
 * Intense Rainstorms: The area can get hit with sudden rain storms that cause flooding.
 * Old Plumbing Systems: Old pipes can burst unexpectedly, like the Jenkins’ kitchen pipe did.
 
-Knowing these risks helps you prepare and respond. Call us! (843) 547-3714](tel:8435473714)
+Knowing these risks helps you prepare and respond. Call us! 
+
+[(843) 547-3714](tel:8435473714)
 
 ## Mold Remediation After Water Damage in Welcome, SC
 
@@ -50,7 +52,7 @@ To handle water damage:
 
 1. Turn Off the Water: Stop the flooding.
 2. Document the Damage: Take pictures for insurance.
-3. Call us: We’ll walk you through the process, just like we did for the Peterson’s after their water damage. (843) 547-3714](tel:8435473714)
+3. Call us: We’ll walk you through the process, just like we did for the Peterson’s after their water damage. [(843) 547-3714](tel:8435473714)
 
 These are key to a quick recovery.
 
