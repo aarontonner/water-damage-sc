@@ -31,8 +31,8 @@ Fort Mill, SC is a great town that can get water damage from many sources. Here�
 ## 24/7 Water Damage Restoration Fort Mill, SC
 
 The Roberts’ had a burst pipe at night and had a ton of water damage in their home. They called us and we were on site in no time to help them. We got to work fast to extract the water and start the restoration process and took the stress away. Call us!
-(843) 547-3714](tel:8435473714)
 
+[(843) 547-3714](tel:8435473714)
 
 ## Common Water Damage Situations in Fort Mill Homes
 
@@ -48,9 +48,9 @@ Mold is a big concern in Fort Mill’s humid climate. After a leak the Johnson�
 
 ## What to Do for Water Damage Restoration in Fort Mill
 
-If you have water damage, you need to know what to do. The Smith’s found out when their kitchen flooded. They called us and we walked them through the process and made sure their home was safe and secure. Give us a call! (843) 547-3714](tel:8435473714)
+If you have water damage, you need to know what to do. The Smith’s found out when their kitchen flooded. They called us and we walked them through the process and made sure their home was safe and secure. Give us a call! 
 
-
+[(843) 547-3714](tel:8435473714)
 
 ## How to Choose the Right Restoration Company in Fort Mill, SC
 
