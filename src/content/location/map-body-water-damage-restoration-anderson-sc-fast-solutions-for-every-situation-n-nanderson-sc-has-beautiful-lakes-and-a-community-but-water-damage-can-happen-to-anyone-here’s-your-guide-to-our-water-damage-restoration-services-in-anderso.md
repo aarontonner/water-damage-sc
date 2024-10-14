@@ -31,8 +31,8 @@ Anderson, SC has beautiful lakes and a community. But water damage can happen to
 ## 24/7 Water Damage Restoration in Anderson, SC
 
 When a pipe burst in the Miller’s house on a freezing night they were in a stressful situation. But they knew they could count on our 24/7 water damage restoration services. We got there fast to mitigate the damage and start the restoration process. Call us!
-(843) 547-3714](tel:8435473714)
 
+[(843) 547-3714](tel:8435473714)
 
 ## Water Damage Risks in Anderson Homes
 
@@ -49,8 +49,8 @@ After the Smith’s home was damaged by water from a leaky roof they called us r
 ## Steps to Mitigate Damage After Water Infiltration in Anderson
 
 When Mrs. Green found water in her kitchen she did the right thing: she turned off the water source, unplugged the electrical appliances and called us. We stressed to her how important it is to act fast to mitigate damage. We got there quickly to handle the situation and guided her through the entire restoration process. Give us a call!
-(843) 547-3714](tel:8435473714)
 
+[(843) 547-3714](tel:8435473714)
 
 ## Why Go Professional with Water Damage Restoration in Anderson
 
