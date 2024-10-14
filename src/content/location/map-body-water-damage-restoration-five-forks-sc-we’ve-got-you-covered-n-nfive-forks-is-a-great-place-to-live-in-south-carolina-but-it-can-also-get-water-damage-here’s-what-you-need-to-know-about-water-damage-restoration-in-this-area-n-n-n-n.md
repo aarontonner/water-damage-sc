@@ -26,9 +26,9 @@ Five Forks is a great place to live in South Carolina but it can also get water 
 
 ## Emergency Water Damage Restoration in Five Forks, SC
 
-When the Brown’s had a leak in their kitchen they called our emergency water damage restoration service. We came out, assessed the damage and started the extraction process. We want to give you peace of mind in a stressful situation. Quick response is key for Five Forks residents. Give us a call! (843) 547-3714](tel:8435473714)
+When the Brown’s had a leak in their kitchen they called our emergency water damage restoration service. We came out, assessed the damage and started the extraction process. We want to give you peace of mind in a stressful situation. Quick response is key for Five Forks residents. Give us a call! 
 
-
+[(843) 547-3714](tel:8435473714)
 
 ## Water Damage Scenarios in Five Forks Homes
 
@@ -38,9 +38,9 @@ Five Forks homes can experience water damage from many sources, plumbing failure
 
 ## Mold Prevention Tips After Water Damage in Five Forks, SC
 
-Mold is a big concern after water damage especially in humid climates. The Johnson’s had mold growth after a leak went unnoticed. We provided mold remediation services and gave them tips on how to maintain low humidity and good ventilation to prevent future issues. Call us! (843) 547-3714](tel:8435473714)
+Mold is a big concern after water damage especially in humid climates. The Johnson’s had mold growth after a leak went unnoticed. We provided mold remediation services and gave them tips on how to maintain low humidity and good ventilation to prevent future issues. Call us! 
 
-
+[(843) 547-3714](tel:8435473714)[(843) 547-3714](tel:8435473714)
 
 ## What to Do for Water Damage Restoration in Five Forks
 
