@@ -25,7 +25,9 @@ Simpsonville, in the beautiful Upstate, has its share of water damage issues, es
 
 ## Water Damage Restoration Services in Simpsonville, SC
 
-When the Roberts family had a sudden basement flood from a faulty sump pump, they called us. Our emergency team arrived in an hour to extract water and prevent further damage. In Simpsonville where the weather can change in an instant, fast action can save homeowners from major repairs. Call us! (843) 547-3714](tel:8435473714)
+When the Roberts family had a sudden basement flood from a faulty sump pump, they called us. Our emergency team arrived in an hour to extract water and prevent further damage. In Simpsonville where the weather can change in an instant, fast action can save homeowners from major repairs. Call us! 
+
+[(843) 547-3714](tel:8435473714)
 
 ## Water Damage in Simpsonville Homes
 
@@ -52,7 +54,7 @@ If water damage happens, do this:
 
 1. Shut Off the Water: Stop the flooding.
 2. Document the Damage: Take pictures and notes for the insurance.
-3. Call us: We’ll walk you through the process, just like we did with the Johnsons who had major water damage. (843) 547-3714](tel:8435473714)
+3. Call us: We’ll walk you through the process, just like we did with the Johnsons who had major water damage. [(843) 547-3714](tel:8435473714)
 
 Fast action can save you money and time.
 
