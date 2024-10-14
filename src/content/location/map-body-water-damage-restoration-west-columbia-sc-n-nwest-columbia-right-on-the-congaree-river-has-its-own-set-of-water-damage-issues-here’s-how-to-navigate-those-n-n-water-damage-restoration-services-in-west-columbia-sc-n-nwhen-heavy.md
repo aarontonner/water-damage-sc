@@ -28,7 +28,9 @@ West Columbia, right on the Congaree River, has its own set of water damage issu
 
 ## Water Damage Restoration Services in West Columbia, SC
 
-When heavy rain caused a flash flood in the Martinez’s home, they called us. Our emergency team got there fast to assess and contain the damage. In West Columbia, flooding can happen at any time. (843) 547-3714](tel:8435473714)
+When heavy rain caused a flash flood in the Martinez’s home, they called us. Our emergency team got there fast to assess and contain the damage. In West Columbia, flooding can happen at any time. 
+
+[(843) 547-3714](tel:8435473714)
 
 ## How to Handle Water Damage from Floods in West Columbia
 
@@ -50,7 +52,9 @@ These are key to a healthy living space.
 
 ## What to Expect During Water Damage Restoration in West Columbia
 
-Knowing the process can help. The Lee’s had many questions after their water damage. Our team walked them through every step from initial assessment to repair. Call us! (843) 547-3714](tel:8435473714)
+Knowing the process can help. The Lee’s had many questions after their water damage. Our team walked them through every step from initial assessment to repair. Call us! 
+
+[(843) 547-3714](tel:8435473714)
 
 ## Best Water Damage Restoration Companies in West Columbia, SC
 
