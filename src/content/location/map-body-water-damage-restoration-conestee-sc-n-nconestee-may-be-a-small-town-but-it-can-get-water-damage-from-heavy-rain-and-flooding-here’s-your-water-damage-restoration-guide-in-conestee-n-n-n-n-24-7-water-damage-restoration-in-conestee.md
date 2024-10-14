@@ -26,9 +26,9 @@ Conestee may be a small town but it can get water damage from heavy rain and flo
 
 ## 24/7 Water Damage Restoration in Conestee, SC
 
-When the Greene’s had a major leak in their kitchen after a heavy rain, they called our 24/7 restoration service. We arrived quickly to assess and fix the damage and gave them peace of mind during a chaotic time. Quick response is key for Conestee residents. Call us! (843) 547-3714](tel:8435473714)
+When the Greene’s had a major leak in their kitchen after a heavy rain, they called our 24/7 restoration service. We arrived quickly to assess and fix the damage and gave them peace of mind during a chaotic time. Quick response is key for Conestee residents. Call us! 
 
-
+[(843) 547-3714](tel:8435473714)
 
 ## Water Damage Risks in Conestee Homes
 
@@ -44,9 +44,9 @@ Mold prevention is key in Conestee’s humid climate. The Morris’s found mold 
 
 ## What to Do After Water Damage in Conestee
 
-Knowing what to do is key after water damage happens. The Martinez’s reacted fast when they found water in their basement, turned off the power and called us for help. We walked them through the steps to minimize damage and start the restoration process. Give us a call! (843) 547-3714](tel:8435473714)
+Knowing what to do is key after water damage happens. The Martinez’s reacted fast when they found water in their basement, turned off the power and called us for help. We walked them through the steps to minimize damage and start the restoration process. Give us a call! 
 
-
+[(843) 547-3714](tel:8435473714)
 
 ## How to Find Water Damage Restoration Companies in Conestee
 
