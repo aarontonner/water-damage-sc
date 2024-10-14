@@ -28,9 +28,9 @@ Fountain Inn, SC is a beautiful city with trees and a tight knit community but l
 
 ## Emergency Water Damage Restoration in Fountain Inn, SC
 
-When a storm hit and flooded the Thompson’s garage in Fountain Inn they called our emergency restoration services. We arrived quickly to assess the damage, extract the water and prevent further damage. Quick response is key to minimizing damage in this pretty area. Give us a call! (843) 547-3714](tel:8435473714)
+When a storm hit and flooded the Thompson’s garage in Fountain Inn they called our emergency restoration services. We arrived quickly to assess the damage, extract the water and prevent further damage. Quick response is key to minimizing damage in this pretty area. Give us a call! 
 
-
+[(843) 547-3714](tel:8435473714)
 
 ## Common Causes of Water Damage in Fountain Inn Homes
 
@@ -40,9 +40,9 @@ Water damage in Fountain Inn can come from heavy rain, old plumbing and even iss
 
 ## Preventing Mold Growth After Water Damage in Fountain Inn, SC
 
-Mold loves Fountain Inn’s humidity. After a leak the Martinez’s found mold in their basement. We cleaned up the mold and advised them on using dehumidifiers and making sure they had good ventilation to prevent future growth. Give us a call! (843) 547-3714](tel:8435473714)
+Mold loves Fountain Inn’s humidity. After a leak the Martinez’s found mold in their basement. We cleaned up the mold and advised them on using dehumidifiers and making sure they had good ventilation to prevent future growth. Give us a call! 
 
-
+[(843) 547-3714](tel:8435473714)
 
 ## What to Do Immediately After Water Damage in Fountain Inn
 
