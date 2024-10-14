@@ -25,7 +25,9 @@ Tigerville with its beautiful scenery and rivers running through it is prone to 
 
 ## 24/7 Water Damage Tigerville, SC
 
-We offer 24/7 services. When the Williams family had a flood from a nearby creek our team was on site in no time to assess the damage and start the restoration. Quick action is key in Tigerville where storms can cause a lot of water damage. Call us! (843) 547-3714](tel:8435473714)
+We offer 24/7 services. When the Williams family had a flood from a nearby creek our team was on site in no time to assess the damage and start the restoration. Quick action is key in Tigerville where storms can cause a lot of water damage. Call us! 
+
+[(843) 547-3714](tel:8435473714)
 
 ## Water Damage Risks in Tigerville Homes
 
@@ -51,7 +53,7 @@ If you have water damage:
 
 1. Turn Off the Water: Prevents more flooding.
 2. Document Everything: Take pictures for insurance.
-3. Call us: Our team will walk you through the process like we did with the Parker family. (843) 547-3714](tel:8435473714)
+3. Call us: Our team will walk you through the process like we did with the Parker family. [(843) 547-3714](tel:8435473714)
 
 These are the steps to recovery.
 
