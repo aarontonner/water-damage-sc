@@ -23,7 +23,9 @@ Understanding Water Damage Restoration Services in Moncks Corner, SC
 
 Moncks Corner, nestled near the scenic Lake Moultrie, is no stranger to water damage issues, particularly during hurricane season. Homeowners should be aware of the various restoration services available.
 
-For example, after Hurricane Florence, many Moncks Corner residents faced flooding in their homes. Our restoration team quickly mobilized to assist with water extraction and damage repair, allowing families to return to their homes faster. Give us a call! (843) 547-3714](tel:8435473714)
+For example, after Hurricane Florence, many Moncks Corner residents faced flooding in their homes. Our restoration team quickly mobilized to assist with water extraction and damage repair, allowing families to return to their homes faster. Give us a call!
+
+ [(843) 547-3714](tel:8435473714)
 
 ## Steps to Take After Water Damage in Your Moncks Corner Home
 
@@ -40,7 +42,9 @@ For instance, a homeowner in Moncks Corner took these steps after a pipe burst, 
 
 Water damage can significantly impact property value. Homes that have experienced water damage often face decreased market value and increased insurance rates.
 
-A Moncks Corner resident learned this the hard way when attempting to sell their home after a flooding incident. The water damage had to be disclosed, leading to lower offers. Understanding this can motivate homeowners to take swift action in case of damage. Call us! (843) 547-3714](tel:8435473714)
+A Moncks Corner resident learned this the hard way when attempting to sell their home after a flooding incident. The water damage had to be disclosed, leading to lower offers. Understanding this can motivate homeowners to take swift action in case of damage. Call us! 
+
+[(843) 547-3714](tel:8435473714)
 
 ## Emergency Water Extraction Services Available in Moncks Corner
 
