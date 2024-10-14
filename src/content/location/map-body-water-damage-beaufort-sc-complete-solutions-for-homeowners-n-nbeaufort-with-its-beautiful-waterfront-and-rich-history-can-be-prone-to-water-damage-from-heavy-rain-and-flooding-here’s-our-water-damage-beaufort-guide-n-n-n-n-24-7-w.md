@@ -27,9 +27,9 @@ Beaufort with its beautiful waterfront and rich history can be prone to water da
 
 ## 24/7 Water Damage Beaufort, SC
 
-When the Carter’s found their home flooded after a recent storm they called our 24/7 water damage service. We arrived quickly to start the extraction and drying process. We know how time sensitive water damage is and we’re here to help! Call us! [(843) 547-3714](tel:8435473714)]
+When the Carter’s found their home flooded after a recent storm they called our 24/7 water damage service. We arrived quickly to start the extraction and drying process. We know how time sensitive water damage is and we’re here to help! Call us! 
 
-
+[(843) 547-3714](tel:8435473714)
 
 ## Water Damage Risks in Beaufort Homes
 
@@ -51,9 +51,9 @@ After water infiltration, time is of the essence to minimize damage. The Henders
 
 ## How to Find Water Damage Restoration Beaufort
 
-Finding a reputable restoration company is important for proper recovery. The Martinez’s faced this decision after water damage. They chose us based on our local reputation and quality of service. If you’re in Beaufort and need a reliable restoration company call us!(843) 547-3714](tel:8435473714)
+Finding a reputable restoration company is important for proper recovery. The Martinez’s faced this decision after water damage. They chose us based on our local reputation and quality of service. If you’re in Beaufort and need a reliable restoration company call us!
 
-
+[(843) 547-3714](tel:8435473714)
 
 ## Water Damage Restoration Beaufort, SC FAQs
 
