@@ -35,8 +35,9 @@ Living in Hardeeville, SC, nestled near the Savannah River and surrounded by lus
 
 Hardeeville, located just across the border from Savannah, GA, has seen significant growth in recent years, with new developments like Hilton Head Lakes and Sun City Carolina Lakes attracting homeowners who love the charm of the Lowcountry. However, being so close to the wetlands and tidal rivers means homes here are more prone to water damage, especially during hurricane season.
 
-One homeowner in the Hearthstone Lakes neighborhood experienced extensive water damage after Hurricane Matthew, with stormwater flooding their first floor. Our team responded quickly, drying the structure and preventing mold growth. Whether it’s damage from seasonal rains or an unexpected plumbing issue, we provide Hardeeville residents with full-service water damage restoration to ensure your home is safe and sound.(843) 547-3714](tel:8435473714)
+One homeowner in the Hearthstone Lakes neighborhood experienced extensive water damage after Hurricane Matthew, with stormwater flooding their first floor. Our team responded quickly, drying the structure and preventing mold growth. Whether it’s damage from seasonal rains or an unexpected plumbing issue, we provide Hardeeville residents with full-service water damage restoration to ensure your home is safe and sound.
 
+[(843) 547-3714](tel:8435473714)
 
 ## Professional Water Extraction and Drying Services in Hardeeville
 
@@ -46,8 +47,9 @@ Take the case of a local family living in the Millstone Landing community. After
 
 ## Handling Water Damage Emergencies in Hardeeville, SC
 
-Hardeeville is no stranger to intense weather patterns, from tropical storms rolling in from the Atlantic to heavy rains in the spring and summer. Recently, a homeowner in the Riverwalk subdivision faced a water damage emergency after a torrential downpour overwhelmed their drainage system, leading to basement flooding. Our emergency team responded immediately, using advanced water extraction tools and moisture detection technology to address the issue before it worsened.(843) 547-3714](tel:8435473714)
+Hardeeville is no stranger to intense weather patterns, from tropical storms rolling in from the Atlantic to heavy rains in the spring and summer. Recently, a homeowner in the Riverwalk subdivision faced a water damage emergency after a torrential downpour overwhelmed their drainage system, leading to basement flooding. Our emergency team responded immediately, using advanced water extraction tools and moisture detection technology to address the issue before it worsened.
 
+[(843) 547-3714](tel:8435473714)
 
 When a water damage emergency strikes in Hardeeville—whether from a storm, broken pipe, or overflowing appliance—immediate action is essential to mitigate further damage. Our local team understands the unique environmental challenges of the Lowcountry and is available 24/7 to handle emergencies of any scale. Call us anytime for prompt and professional service.
 
