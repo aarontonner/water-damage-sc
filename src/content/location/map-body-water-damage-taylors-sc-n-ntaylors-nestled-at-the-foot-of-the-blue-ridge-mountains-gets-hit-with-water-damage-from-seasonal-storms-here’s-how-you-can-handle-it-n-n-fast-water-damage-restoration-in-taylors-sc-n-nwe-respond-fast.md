@@ -36,7 +36,9 @@ You should be aware of these common causes:
 * Old Plumbing: Many homes have old plumbing that can fail without warning like the Johnson’s did with a burst pipe.
 * Sump Pump Failure: In homes with basements, sump pump failure can cause big flooding.
 
-Knowing these can help you prepare. Call us! (843) 547-3714](tel:8435473714)
+Knowing these can help you prepare. Call us! 
+
+[(843) 547-3714](tel:8435473714)
 
 ## Mold Remediation after Water Damage in Taylors, SC
 
@@ -53,7 +55,7 @@ To handle water damage follow these steps:
 
 1. Shut Off the Water: This will stop the flooding.
 2. Document Everything: Pictures are key for insurance claims.
-3. Call us: We’ll walk you through the process, just like we did for the Reed’s. (843) 547-3714](tel:8435473714)
+3. Call us: We’ll walk you through the process, just like we did for the Reed’s. [(843) 547-3714](tel:8435473714)
 
 
 These are key to a quick recovery.
