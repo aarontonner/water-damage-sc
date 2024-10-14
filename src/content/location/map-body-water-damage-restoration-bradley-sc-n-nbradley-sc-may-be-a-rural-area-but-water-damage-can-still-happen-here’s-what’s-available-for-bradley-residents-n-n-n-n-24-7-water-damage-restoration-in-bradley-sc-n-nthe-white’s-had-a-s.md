@@ -38,9 +38,9 @@ Older homes in Bradley have unique water damage risks, like outdated plumbing sy
 
 ## Mold Prevention Tips After Water Damage in Bradley, SC
 
-After water damage mold growth can be a serious health risk. The Parker’s called us after they noticed mold in their attic after a leak. We helped them with mold remediation and gave them tips on how to maintain proper ventilation to prevent future mold issues. If you have mold concerns, call us! (843) 547-3714](tel:8435473714)
+After water damage mold growth can be a serious health risk. The Parker’s called us after they noticed mold in their attic after a leak. We helped them with mold remediation and gave them tips on how to maintain proper ventilation to prevent future mold issues. If you have mold concerns, call us! 
 
-
+[(843) 547-3714](tel:8435473714)
 
 ## What to Do After Water Damage
 
@@ -50,9 +50,9 @@ Knowing what to do after water damage is key. The Lewis’s acted fast after a s
 
 ## Where to Find Water Damage Restoration Companies in Bradley
 
-Finding a reputable company is crucial for a successful recovery. The Davis’s chose us after researching local options and liked our commitment to service. We gave them a detailed estimate and clear communication throughout the process. If you need a reliable service in Bradley, call us! (843) 547-3714](tel:8435473714)
+Finding a reputable company is crucial for a successful recovery. The Davis’s chose us after researching local options and liked our commitment to service. We gave them a detailed estimate and clear communication throughout the process. If you need a reliable service in Bradley, call us! 
 
-
+[(843) 547-3714](tel:8435473714)
 
 ## Bradley, SC Water Damage Restoration FAQs
 
