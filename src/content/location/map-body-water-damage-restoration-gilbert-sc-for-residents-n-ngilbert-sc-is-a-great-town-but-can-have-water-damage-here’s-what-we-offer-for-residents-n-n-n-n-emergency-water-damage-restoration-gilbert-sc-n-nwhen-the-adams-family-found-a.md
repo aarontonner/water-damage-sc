@@ -24,9 +24,9 @@ Gilbert, SC is a great town but can have water damage. Here’s what we offer fo
 
 ## Emergency Water Damage Restoration Gilbert, SC
 
-When the Adams family found a leak in their basement after a storm they called us. We arrived quickly to assess the damage and extract. Quick response is key for homeowners in Gilbert.
+When the Adams family found a leak in their basement after a storm they called us. We arrived quickly to assess the damage and extract. Quick response is key for homeowners in Gilbert. 
 
-
+[(843) 547-3714](tel:8435473714)
 
 ## What to do when you have water damage from flooding in Gilbert
 
@@ -50,7 +50,7 @@ Knowing the process helps alleviate anxiety. The Martinez family had many questi
 
 Choosing the right restoration company is key to a quick recovery. The Smith family chose us based on our local presence and good reviews. We did thorough assessments and restoration and got them back to normal fast.
 
-
+[(843) 547-3714](tel:8435473714)
 
 ## Water Damage Restoration Costs in Gilbert
 
