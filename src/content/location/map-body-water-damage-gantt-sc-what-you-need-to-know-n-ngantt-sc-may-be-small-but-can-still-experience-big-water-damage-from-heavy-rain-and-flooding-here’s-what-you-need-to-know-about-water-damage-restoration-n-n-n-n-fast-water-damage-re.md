@@ -32,9 +32,9 @@ When the Mitchell’s basement flooded after a storm the family called us in. We
 
 ## Water Damage in Gantt Homes
 
-Water damage in Gantt can come from heavy rain, flooding and plumbing issues. For example the Parker’s had big damage when a pipe burst in their home. Knowing these common causes can help homeowners prepare. (843) 547-3714](tel:8435473714)
+Water damage in Gantt can come from heavy rain, flooding and plumbing issues. For example the Parker’s had big damage when a pipe burst in their home. Knowing these common causes can help homeowners prepare. 
 
-
+[(843) 547-3714](tel:8435473714)
 
 ## Mold Remediation After Water Damage in Gantt, SC
 
@@ -44,9 +44,9 @@ Mold can become a big problem after water damage. The Thompson’s found mold gr
 
 ## Water Damage Restoration in Gantt
 
-If you have water damage you need to act fast. When the Lewis’s found water in their kitchen they turned off the water and called us. We walked them through the process and stressed the importance of timing. (843) 547-3714](tel:8435473714)
+If you have water damage you need to act fast. When the Lewis’s found water in their kitchen they turned off the water and called us. We walked them through the process and stressed the importance of timing. 
 
-
+[(843) 547-3714](tel:8435473714)
 
 ## Choosing the Right Restoration Company in Gantt, SC
 
