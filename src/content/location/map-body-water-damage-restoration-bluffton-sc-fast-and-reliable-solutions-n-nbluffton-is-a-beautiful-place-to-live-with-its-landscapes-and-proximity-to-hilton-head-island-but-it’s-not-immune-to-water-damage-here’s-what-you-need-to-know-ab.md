@@ -33,9 +33,9 @@ Bluffton is a beautiful place to live with its landscapes and proximity to Hilto
 
 ## Fast Water Damage Restoration in Bluffton, SC
 
-The Anderson’s had a surprise when their kitchen flooded due to a broken dishwasher. They called us and we were on-site in an hour. Our fast response time allowed us to stop further damage and start the restoration process. Call us!(843) 547-3714](tel:8435473714)
+The Anderson’s had a surprise when their kitchen flooded due to a broken dishwasher. They called us and we were on-site in an hour. Our fast response time allowed us to stop further damage and start the restoration process. Call us!
 
-
+[(843) 547-3714](tel:8435473714)
 
 
 ## Water Damage in Bluffton: Common Causes and How to Prevent Them
@@ -53,8 +53,8 @@ Mold is a big problem in Bluffton especially after water damage. When the Murphy
 ## What to do when you have water damage in Bluffton
 
 You need to know how to react to water damage. The Smith’s found out when their basement flooded after a storm. They turned off the power and called us. We got there fast to assess and start the restoration. If you ever have water damage, remember to turn off power sources, document the damage and call professionals right away.
-(843) 547-3714](tel:8435473714)
 
+[(843) 547-3714](tel:8435473714)
 
 ## Water Damage Restoration Services in Bluffton
 
