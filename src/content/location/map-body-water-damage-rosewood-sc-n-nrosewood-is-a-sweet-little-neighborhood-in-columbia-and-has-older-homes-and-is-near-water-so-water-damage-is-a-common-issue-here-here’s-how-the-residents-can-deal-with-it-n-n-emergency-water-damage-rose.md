@@ -24,7 +24,9 @@ Rosewood is a sweet little neighborhood in Columbia and has older homes and is n
 
 ## Emergency Water Damage Rosewood, SC
 
-When the Smith’s pipe burst during a winter freeze the family called us. Our emergency team was on scene within an hour to assess and mitigate the damage. Time is of the essence in this neighborhood where temperature fluctuations can cause plumbing issues. Call us! (843) 547-3714](tel:8435473714)
+When the Smith’s pipe burst during a winter freeze the family called us. Our emergency team was on scene within an hour to assess and mitigate the damage. Time is of the essence in this neighborhood where temperature fluctuations can cause plumbing issues. Call us! 
+
+[(843) 547-3714](tel:8435473714)
 
 ## How to Handle Water Damage from Flooding Rosewood
 
@@ -42,7 +44,9 @@ Mold can grow fast after water damage. After fixing the Lee’s leak we implemen
 * Deep Cleaning of Affected Areas: Using specialized solutions to remove mold spores.
 * Sealing Leaks: To prevent future water intrusion.
 
-These are key to a healthy living space. Give us a call! (843) 547-3714](tel:8435473714)
+These are key to a healthy living space. Give us a call! 
+
+[(843) 547-3714](tel:8435473714)
 
 ## What to Expect During Water Damage Rosewood
 
