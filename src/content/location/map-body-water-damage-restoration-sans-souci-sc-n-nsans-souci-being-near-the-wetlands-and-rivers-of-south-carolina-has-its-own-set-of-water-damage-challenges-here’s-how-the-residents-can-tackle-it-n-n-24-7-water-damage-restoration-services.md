@@ -33,7 +33,9 @@ Common risks are:
 * Flooding from Heavy Rain: Being near waterways can cause flooding during storms.
 * High Humidity Levels: The humidity in the area can cause mold growth if water damage occurs.
 
-Knowing these risks will help homeowners to take preventive measures. Call us! (843) 547-3714](tel:8435473714)
+Knowing these risks will help homeowners to take preventive measures. Call us! 
+
+[(843) 547-3714](tel:8435473714)
 
 ## Preventing Mold Growth After Water Damage in Sans Souci, SC
 
@@ -50,7 +52,7 @@ If you have water damage follow these:
 
 1. Turn Off Electrical Sources: To avoid electrocution.
 2. Document Everything: Photos are key for insurance claims.
-3. Call us: We can guide you through the process, we did for the Evans’. (843) 547-3714](tel:8435473714)
+3. Call us: We can guide you through the process, we did for the Evans’. [(843) 547-3714](tel:8435473714)
 
 Following these steps will speed up the recovery process.
 
