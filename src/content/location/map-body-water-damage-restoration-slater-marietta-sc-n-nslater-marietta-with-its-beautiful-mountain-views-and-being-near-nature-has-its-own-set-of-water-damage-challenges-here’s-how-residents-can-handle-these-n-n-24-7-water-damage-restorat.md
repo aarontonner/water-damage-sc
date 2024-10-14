@@ -37,7 +37,9 @@ Common risks are:
 * Flooding from Heavy Rains: Homes near creeks and rivers can flood during storms.
 * Ice Dams and Snow Melt: In winter ice can build up and leak when temperatures rise.
 
-Knowing these risks helps residents prepare. Call us! (843) 547-3714](tel:8435473714)
+Knowing these risks helps residents prepare. Call us! 
+
+[(843) 547-3714](tel:8435473714)
 
 ## Mold Prevention Tips After Water Damage in Slater-Marietta, SC
 
@@ -54,7 +56,7 @@ If water damage happens follow these:
 
 1. Turn Off Electricity: This is key.
 2. Document the Damage: Take pictures for insurance.
-3. Call us: Our team will walk you through the process just like we did for the Lee family after a big flood. (843) 547-3714](tel:8435473714)
+3. Call us: Our team will walk you through the process just like we did for the Lee family after a big flood. [(843) 547-3714](tel:8435473714)
 
 These are crucial for a successful recovery.
 
