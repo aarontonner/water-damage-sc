@@ -27,7 +27,9 @@ When the Roberts family had a pipe burst in their kitchen and flooded, they call
 
 ## Common Causes of Water Damage in Conway Homes
 
-In Conway, common causes of water damage are heavy rain, Waccamaw River flooding and plumbing issues. For example, the Jenkins family found water damage after a big storm caused localized flooding. Knowing these risks can help homeowners be proactive. Give us a call! (843) 547-3714](tel:8435473714)
+In Conway, common causes of water damage are heavy rain, Waccamaw River flooding and plumbing issues. For example, the Jenkins family found water damage after a big storm caused localized flooding. Knowing these risks can help homeowners be proactive. Give us a call! 
+
+[(843) 547-3714](tel:8435473714)[(843) 547-3714](tel:8435473714)
 
 ## Mold Remediation After Water Damage in Conway, SC
 
@@ -35,7 +37,9 @@ Mold grows fast in Conway’s humidity. The Simmons family had mold issues after
 
 ## How to Restore Water Damage in Conway
 
-If you have water damage, you need to act fast. The Green family found themselves in a tough spot when they found water in their basement after a storm. They turned off the power and called us and we walked them through the process. Call us! (843) 547-3714](tel:8435473714)
+If you have water damage, you need to act fast. The Green family found themselves in a tough spot when they found water in their basement after a storm. They turned off the power and called us and we walked them through the process. Call us! 
+
+[(843) 547-3714](tel:8435473714)
 
 ## Choosing the Right Restoration Company in Conway, SC
 
