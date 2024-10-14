@@ -26,9 +26,9 @@ Berea is growing in South Carolina and can experience water damage from heavy ra
 
 ## Water Damage Emergency Berea, SC
 
-When the Cooper’s home flooded from a big rain storm they were overwhelmed. They called us and we showed up to assess the damage and start the restoration. Our quick response means Berea residents can count on us in an emergency. Call us! (843) 547-3714](tel:8435473714)
+When the Cooper’s home flooded from a big rain storm they were overwhelmed. They called us and we showed up to assess the damage and start the restoration. Our quick response means Berea residents can count on us in an emergency. Call us! 
 
-
+[(843) 547-3714](tel:8435473714)
 
 ## Water Damage Risks in Berea Homes
 
@@ -38,9 +38,9 @@ Older homes in Berea can experience water damage from outdated plumbing and roof
 
 ## Mold Remediation After Water Damage in Berea
 
-Mold is common after water damage. The Sanchez’s called us after they found mold growth after a water intrusion. We provided thorough mold remediation services and gave them prevention tips for their home. If you suspect mold we’re here to help! (843) 547-3714](tel:8435473714)
+Mold is common after water damage. The Sanchez’s called us after they found mold growth after a water intrusion. We provided thorough mold remediation services and gave them prevention tips for their home. If you suspect mold we’re here to help! 
 
-
+[(843) 547-3714](tel:8435473714)
 
 ## What to Do When You Have Water Damage in Berea, SC
 
