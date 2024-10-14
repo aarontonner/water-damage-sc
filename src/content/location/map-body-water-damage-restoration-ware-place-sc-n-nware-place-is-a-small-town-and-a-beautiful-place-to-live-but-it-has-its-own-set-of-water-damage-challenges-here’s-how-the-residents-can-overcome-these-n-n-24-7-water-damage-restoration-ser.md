@@ -26,7 +26,9 @@ Ware Place is a small town and a beautiful place to live but it has its own set 
 
 ## 24/7 Water Damage Restoration Services in Ware Place, SC
 
-We are available 24/7. When the Smith’s had a major leak after a storm our team was on site in no time to assess and mitigate the damage. In Ware Place where the weather can change in an instant, time is of the essence. Give us a call! (843) 547-3714](tel:8435473714)
+We are available 24/7. When the Smith’s had a major leak after a storm our team was on site in no time to assess and mitigate the damage. In Ware Place where the weather can change in an instant, time is of the essence. Give us a call! 
+
+[(843) 547-3714](tel:8435473714)
 
 ## Water Damage Risks in Ware Place Homes
 
@@ -52,7 +54,7 @@ If water damage happens:
 
 1. Turn Off the Power: Before entering the affected area.
 2. Document Everything: For insurance purposes.
-3. Call us: We will walk you through the process, just like we did for the Roberts’ after a flood. (843) 547-3714](tel:8435473714)
+3. Call us: We will walk you through the process, just like we did for the Roberts’ after a flood. [(843) 547-3714](tel:8435473714)
 
 These will help.
 
