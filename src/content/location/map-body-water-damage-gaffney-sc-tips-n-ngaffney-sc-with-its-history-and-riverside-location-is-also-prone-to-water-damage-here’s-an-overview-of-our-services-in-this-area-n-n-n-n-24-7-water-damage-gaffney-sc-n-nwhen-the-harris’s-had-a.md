@@ -25,9 +25,9 @@ Gaffney, SC with its history and riverside location is also prone to water damag
 
 ## 24/7 Water Damage Gaffney, SC
 
-When the Harris’s had a burst pipe in their home they called our 24/7 service. We arrived quick, assessed the situation and started water removal. Quick response is key when you have water damage in Gaffney. Give us a call! (843) 547-3714](tel:8435473714)
+When the Harris’s had a burst pipe in their home they called our 24/7 service. We arrived quick, assessed the situation and started water removal. Quick response is key when you have water damage in Gaffney. Give us a call! 
 
-
+[(843) 547-3714](tel:8435473714)
 
 ## Water Damage Risks in Gaffney Homes
 
@@ -37,9 +37,9 @@ Homes in Gaffney are prone to water damage from many sources, heavy rain and flo
 
 ## Mold Prevention Tips After Water Damage in Gaffney, SC
 
-In Gaffney’s humid climate mold prevention is key. After water damage the Scott’s found mold in their basement. We helped them with mold remediation and provided them with tips, dehumidifiers and proper ventilation. Give us a call! (843) 547-3714](tel:8435473714)
+In Gaffney’s humid climate mold prevention is key. After water damage the Scott’s found mold in their basement. We helped them with mold remediation and provided them with tips, dehumidifiers and proper ventilation. Give us a call! 
 
-
+[(843) 547-3714](tel:8435473714)
 
 ## What to Do After Water Damage in Gaffney
 
