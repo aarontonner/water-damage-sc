@@ -29,9 +29,9 @@ Blythewood is known for its beautiful scenery and small town feel but can experi
 
 ## Emergency Water Damage Blythewood, SC
 
-Imagine the Roberts family coming home from a family function to find their basement flooded after a surprise rain storm. They called our emergency water damage service right away. We arrived quick to assess the situation and started the extraction process. We’re available 24/7 so Blythewood residents have help when they need it. Call us! (843) 547-3714](tel:8435473714)
+Imagine the Roberts family coming home from a family function to find their basement flooded after a surprise rain storm. They called our emergency water damage service right away. We arrived quick to assess the situation and started the extraction process. We’re available 24/7 so Blythewood residents have help when they need it. Call us! 
 
-
+[(843) 547-3714](tel:8435473714)
 
 ## Common Causes of Water Damage in Blythewood Homes
 
@@ -41,9 +41,9 @@ In Blythewood, the most common causes of water damage are heavy rain, plumbing l
 
 ## Preventing Mold Growth After Water Damage in Blythewood, SC
 
-Since Blythewood is so humid, mold growth is a big concern after water damage. The Jenkins family had mold issues after a slow leak in their bathroom went unnoticed. We did a thorough mold remediation and educated them on how to keep the humidity levels low in their home to prevent future growth. Monitor and act fast! Give us a call! (843) 547-3714](tel:8435473714)
+Since Blythewood is so humid, mold growth is a big concern after water damage. The Jenkins family had mold issues after a slow leak in their bathroom went unnoticed. We did a thorough mold remediation and educated them on how to keep the humidity levels low in their home to prevent future growth. Monitor and act fast! Give us a call! 
 
-
+[(843) 547-3714](tel:8435473714)
 
 ## What to Do Immediately After Water Damage in Blythewood
 
