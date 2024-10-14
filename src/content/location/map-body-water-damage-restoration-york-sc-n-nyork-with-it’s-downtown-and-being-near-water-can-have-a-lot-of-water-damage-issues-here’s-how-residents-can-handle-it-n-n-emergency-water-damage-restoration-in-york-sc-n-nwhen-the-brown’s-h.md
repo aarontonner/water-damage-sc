@@ -38,7 +38,9 @@ Residents should know:
 * Flooding from Storms: Storms can flood areas near water. The Smith’s found out.
 * Basement Flooding: Homes with basements flood during heavy rain.
 
-Knowing these helps residents prepare and respond. Call us! (843) 547-3714](tel:8435473714)
+Knowing these helps residents prepare and respond. Call us! 
+
+[(843) 547-3714](tel:8435473714)
 
 ## Mold Prevention Tips After Water Damage in York, SC
 
@@ -53,7 +55,7 @@ These are important for a healthy living space.
 
 1. Shut Off the Water: Stops the flooding.
 2. Document the Damage: Take pictures for insurance.
-3. Call us: We’ll walk you through the process. We did for the Davis’s. (843) 547-3714](tel:8435473714)
+3. Call us: We’ll walk you through the process. We did for the Davis’s. [(843) 547-3714](tel:8435473714)
 
 These are key to a quick recovery.
 
