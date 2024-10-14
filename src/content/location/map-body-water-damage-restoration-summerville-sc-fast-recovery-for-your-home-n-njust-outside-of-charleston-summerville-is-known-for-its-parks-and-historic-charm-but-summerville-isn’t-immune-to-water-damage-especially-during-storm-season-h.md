@@ -34,8 +34,8 @@ Just outside of Charleston, Summerville is known for its parks and historic char
 ## Emergency Water Damage Restoration in Summerville, SC
 
 After a big rainstorm the McCoy’s basement flooded. They called us and we responded quick with our emergency water damage restoration services. We got on site within an hour to assess the damage, remove standing water and start the drying process. We know water damage can get out of hand fast, so we’re available 24/7 to help residents recover fast. Call us!
-(843) 547-3714](tel:8435473714)
 
+[(843) 547-3714](tel:8435473714)
 
 ## What to Do with Water Damage from Storms in Summerville
 
@@ -52,8 +52,8 @@ In the humid climate of Summerville mold growth after water damage is a big conc
 ## Water Damage Restoration Time is of the Essence
 
 When it comes to water damage, time is of the essence. The Wilson’s who live near Azalea Park waited too long to address a slow leak and now have significant mold growth. We told them how important it is to act fast and we were able to save their home but it could have been easier if they had called us sooner. If you see signs of water damage don’t wait—call us now for fast restoration services!
-(843) 547-3714](tel:8435473714)
 
+[(843) 547-3714](tel:8435473714)
 
 ## Best Water Damage Restoration in Summerville, SC
 
