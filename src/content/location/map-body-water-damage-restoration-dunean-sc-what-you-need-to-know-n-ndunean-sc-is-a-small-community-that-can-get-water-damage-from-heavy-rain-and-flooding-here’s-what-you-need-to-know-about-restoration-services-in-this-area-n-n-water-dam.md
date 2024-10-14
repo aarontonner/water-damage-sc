@@ -30,8 +30,9 @@ When the Adams family had a flood in their basement after a big rain, they calle
 
 ## How to Deal with Water Damage from Floods in Dunean
 
-Flooding can cause big damage in Dunean. The Parker family found out the hard way when a sudden storm brought water into their home. We helped them with the aftermath, including damage assessment and restoration process. Knowing how to deal with floods is key! Give us a call! (843) 547-3714](tel:8435473714)
+Flooding can cause big damage in Dunean. The Parker family found out the hard way when a sudden storm brought water into their home. We helped them with the aftermath, including damage assessment and restoration process. Knowing how to deal with floods is key! Give us a call! 
 
+[(843) 547-3714](tel:8435473714)
 
 ## Mold Removal and Prevention After Water Damage in Dunean, SC
 
@@ -39,7 +40,9 @@ Mold can be a big problem after water damage. The Greene family found mold in th
 
 ## What to Expect During Water Damage Restoration in Dunean
 
-Knowing the process can help alleviate worries. The Roberts family had a lot of questions after water damage. We walked them through every step, from assessment to cleanup to repairs, so they felt informed and at ease the whole time. Call us! (843) 547-3714](tel:8435473714)
+Knowing the process can help alleviate worries. The Roberts family had a lot of questions after water damage. We walked them through every step, from assessment to cleanup to repairs, so they felt informed and at ease the whole time. Call us!
+
+[(843) 547-3714](tel:8435473714)
 
 ## Best Water Damage Restoration Companies in Dunean, SC
 
