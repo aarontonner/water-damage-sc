@@ -35,7 +35,9 @@ Residents should be aware of the following:
 * Flooding from Nearby Waterways: Being in the middle of South Carolina can increase the risk of flooding during heavy rain.
 * Old Plumbing: Many homes have old pipes that can burst unexpectedly.
 
-Knowing these risks is key to taking preventive measures. Call us! (843) 547-3714](tel:8435473714)
+Knowing these risks is key to taking preventive measures. Call us! 
+
+[(843) 547-3714](tel:8435473714)
 
 ## Preventing Mold Growth After Water Damage in Yemassee, SC
 
@@ -52,7 +54,7 @@ If you have water damage:
 
 1. Turn Off the Water: Prevents more flooding.
 2. Document Everything: Take pictures for insurance.
-3. Call us: We will walk you through the process, we did for the Harris’s. (843) 547-3714](tel:8435473714)
+3. Call us: We will walk you through the process, we did for the Harris’s. [(843) 547-3714](tel:8435473714)
 
 Act fast to minimize damage and costs.
 
