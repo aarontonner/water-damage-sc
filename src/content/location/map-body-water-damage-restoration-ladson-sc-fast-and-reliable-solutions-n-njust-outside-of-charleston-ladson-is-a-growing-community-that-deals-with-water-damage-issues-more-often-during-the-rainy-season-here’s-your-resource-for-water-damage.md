@@ -30,8 +30,9 @@ Just outside of Charleston, Ladson is a growing community that deals with water 
 
 ## 24/7 Water Damage Restoration in Ladson, SC
 
-When the Hernandez’s woke up in the middle of the night to a pipe burst, they felt lost. They called our 24/7 water damage restoration and we arrived quick to assess and contain the damage. We know time is of the essence with water damage so we’re always ready to help. Call us! (843) 547-3714](tel:8435473714)
+When the Hernandez’s woke up in the middle of the night to a pipe burst, they felt lost. They called our 24/7 water damage restoration and we arrived quick to assess and contain the damage. We know time is of the essence with water damage so we’re always ready to help. Call us! 
 
+[(843) 547-3714](tel:8435473714)
 
 ## Water Damage Risks in Ladson Homes
 
@@ -47,8 +48,9 @@ Mold can grow fast in Ladson’s humidity. After a flood the Taylor’s called u
 
 ## What to Do When You Have Water Damage in Ladson, SC
 
-If you have water damage, knowing what to do can help. The Smith’s acted fast when their bathroom flooded. They turned off the water, moved valuables and called us. We guided them on documentation and what to do next. Remember, acting fast can make a big difference in the restoration process! Give us a call! (843) 547-3714](tel:8435473714)
+If you have water damage, knowing what to do can help. The Smith’s acted fast when their bathroom flooded. They turned off the water, moved valuables and called us. We guided them on documentation and what to do next. Remember, acting fast can make a big difference in the restoration process! Give us a call! 
 
+[(843) 547-3714](tel:8435473714)
 
 ## How to Find Water Damage Restoration Companies in Ladson
 
