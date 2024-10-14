@@ -24,7 +24,7 @@ North Myrtle Beach has beautiful beaches but also water damage, especially durin
 
 ## Water Damage Restoration North Myrtle Beach, SC
 
-When the Jones’ had flooding from a storm surge they called us for emergency services. We got there fast to assess the situation and start the restoration process, stress quick response. Call us! (843) 547-3714](tel:8435473714)
+When the Jones’ had flooding from a storm surge they called us for emergency services. We got there fast to assess the situation and start the restoration process, stress quick response. Call us! [(843) 547-3714](tel:8435473714)
 
 ## What to Do with Water Damage from Flooding in North Myrtle Beach
 
@@ -37,7 +37,7 @@ Mold thrives in humid coastal areas. After a water leak the Smith’s found mold
 * Moisture barriers
 * Regularly checking for leaks and water intrusion
 
-These are key to a safe home. Give us a call! (843) 547-3714](tel:8435473714)
+These are key to a safe home. Give us a call! [(843) 547-3714](tel:8435473714)
 
 ## What to Expect with Water Damage Restoration in North Myrtle Beach
 
