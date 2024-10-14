@@ -31,7 +31,9 @@ Residents should know the common causes of water damage:
 * Severe Storms: The Smiths had major flooding when a storm caused water to overflow from nearby streams.
 * Pipe Bursts: Old pipes can burst unexpectedly, like the Johnsons found out during a winter freeze.
 
-Knowing these risks can help you prepare and take action. Call us! (843) 547-3714](tel:8435473714)
+Knowing these risks can help you prepare and take action. Call us! 
+
+[(843) 547-3714](tel:8435473714)
 
 ## Mold Prevention Tips After Water Damage in Parker, SC
 
@@ -48,7 +50,7 @@ If you have water damage do:
 
 1. Turn off the water: This is the most important step to prevent further damage.
 2. Document the damage: Take pictures for insurance.
-3. Call us: We’ll walk you through the process. (843) 547-3714](tel:8435473714)
+3. Call us: We’ll walk you through the process. [(843) 547-3714](tel:8435473714)
 
 The Taylor’s did this and it worked for them.
 
