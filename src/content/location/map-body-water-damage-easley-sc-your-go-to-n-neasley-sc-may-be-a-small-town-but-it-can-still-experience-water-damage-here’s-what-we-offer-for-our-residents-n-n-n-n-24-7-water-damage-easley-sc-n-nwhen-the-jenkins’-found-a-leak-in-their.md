@@ -30,9 +30,9 @@ When the Jenkins’ found a leak in their roof after a storm they called our 24/
 
 ## Water Damage Risks in Easley Homes
 
-Homes in Easley can experience water damage from many sources, plumbing issues and severe weather. For example the Davis’ had significant water damage when a pipe burst in their bathroom. Knowing these common causes can help homeowners be proactive. Give us a call! (843) 547-3714](tel:8435473714)
+Homes in Easley can experience water damage from many sources, plumbing issues and severe weather. For example the Davis’ had significant water damage when a pipe burst in their bathroom. Knowing these common causes can help homeowners be proactive. Give us a call!
 
-
+[(843) 547-3714](tel:8435473714)
 
 ## How to Prevent Mold After Water Damage in Easley, SC
 
@@ -42,9 +42,9 @@ Preventing mold is key after water damage especially in Easley’s humid climate
 
 ## What to Do When You Have Water Damage in Easley
 
-Knowing what to do is key after water damage happens. The Martinez’s acted fast when they found water in their basement, turned off the power and called us for help. We walked them through the process and stressed the importance of fast action. Call us! (843) 547-3714](tel:8435473714)
+Knowing what to do is key after water damage happens. The Martinez’s acted fast when they found water in their basement, turned off the power and called us for help. We walked them through the process and stressed the importance of fast action. Call us! 
 
-
+[(843) 547-3714](tel:8435473714)
 
 ## Where to Find Water Damage Restoration in Easley
 
