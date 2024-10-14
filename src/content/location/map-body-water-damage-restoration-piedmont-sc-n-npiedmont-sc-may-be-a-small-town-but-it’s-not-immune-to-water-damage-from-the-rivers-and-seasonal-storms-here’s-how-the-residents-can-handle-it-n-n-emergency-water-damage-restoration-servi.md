@@ -23,7 +23,9 @@ Piedmont, SC may be a small town but it’s not immune to water damage from the 
 
 ## Emergency Water Damage Restoration Services in Piedmont, SC
 
-When the Thompson family had a sudden pipe burst due to the cold snap they called us. Our emergency team arrived fast, to minimize the damage and restore their home. In Piedmont fast action is key as the temperature fluctuations can cause plumbing issues. Call us! (843) 547-3714](tel:8435473714)
+When the Thompson family had a sudden pipe burst due to the cold snap they called us. Our emergency team arrived fast, to minimize the damage and restore their home. In Piedmont fast action is key as the temperature fluctuations can cause plumbing issues. Call us! 
+
+[(843) 547-3714](tel:8435473714)
 
 ## Common Causes of Water Damage in Piedmont Homes
 
@@ -48,7 +50,7 @@ These are important for a healthy home.
 
 1. Shut Off the Water: This will stop the flooding.
 2. Document the Damage: Take pictures for insurance.
-3. Call us: Our team will walk you through the process, like we did for the Jenkins family who had extensive damage from a storm. (843) 547-3714](tel:8435473714)
+3. Call us: Our team will walk you through the process, like we did for the Jenkins family who had extensive damage from a storm. [(843) 547-3714](tel:8435473714)
 
 Quick action will save time and money in the long run.
 
