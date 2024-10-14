@@ -31,9 +31,9 @@ Myrtle Beach is a beach destination, beaches and tourist attractions. But being 
 
 ## 24/7 Water Damage Myrtle Beach, SC
 
-The Carter’s vacation rental flooded from a tropical storm. They called our 24/7 water damage restoration and we got there fast to mitigate the damage. We know time is of the essence in these situations so we get to Myrtle Beach residents fast. Call us! (843) 547-3714](tel:8435473714)
+The Carter’s vacation rental flooded from a tropical storm. They called our 24/7 water damage restoration and we got there fast to mitigate the damage. We know time is of the essence in these situations so we get to Myrtle Beach residents fast. Call us! 
 
-
+[(843) 547-3714](tel:8435473714)
 
 ## Water Damage Risks in Myrtle Beach Homes
 
@@ -49,9 +49,9 @@ Myrtle Beach’s humidity can cause mold to grow fast after water damage. The Sm
 
 ## What to Do for Water Damage Restoration Myrtle Beach
 
-Knowing what to do after water damage is important. The Perez’s acted fast when they found water in their living room. They called us and we walked them through the process and got their home safe and dry. Give us a call! (843) 547-3714](tel:8435473714)
+Knowing what to do after water damage is important. The Perez’s acted fast when they found water in their living room. They called us and we walked them through the process and got their home safe and dry. Give us a call! 
 
-
+[(843) 547-3714](tel:8435473714)
 
 ## How to Choose a Restoration Company in Myrtle Beach
 
