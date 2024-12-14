@@ -29,26 +29,19 @@ summaryText: When water damage hits in Bluffton, SC, fast and reliable
 
 Bluffton is a beautiful place to live with its landscapes and proximity to Hilton Head Island. But it’s not immune to water damage. Here’s what you need to know about our water damage restoration services in Bluffton.
 
-
-
 ## Fast Water Damage Restoration in Bluffton, SC
 
 The Anderson’s had a surprise when their kitchen flooded due to a broken dishwasher. They called us and we were on-site in an hour. Our fast response time allowed us to stop further damage and start the restoration process. Call us!
 
 [(843) 547-3714](tel:8435473714)
 
-
 ## Water Damage in Bluffton: Common Causes and How to Prevent Them
 
-In Bluffton, common causes of water damage are flooding from heavy rains and plumbing issues. The Johnson’s found out when their home flooded from heavy rains and poor drainage. We helped them find the source and implement measures to prevent future occurrences. Knowing these risks can help you protect your home. 
-
-
+In Bluffton, common causes of water damage are flooding from heavy rains and plumbing issues. The Johnson’s found out when their home flooded from heavy rains and poor drainage. We helped them find the source and implement measures to prevent future occurrences. Knowing these [climate risks and preventative actions](/blog/the-impact-of-south-carolina's-climate-on-water-damage-risks-and-prevention-strategies/) can help you protect your home. 
 
 ## Mold Remediation After Water Damage in Bluffton, SC
 
 Mold is a big problem in Bluffton especially after water damage. When the Murphy’s found mold in their bathroom after a leak they called us. We did a full mold inspection and remediation and made the area safe for their family. We also gave them tips on how to prevent future mold growth. 
-
-
 
 ## What to do when you have water damage in Bluffton
 
@@ -59,8 +52,6 @@ You need to know how to react to water damage. The Smith’s found out when thei
 ## Water Damage Restoration Services in Bluffton
 
 Choosing a good water damage restoration company is key. When the Garcia’s had a flooded basement they called us based on their neighbors recommendation. We did a full assessment, full restoration and support through the insurance process. 
-
-
 
 ## What’s in Your Insurance for Water Damage in Bluffton
 

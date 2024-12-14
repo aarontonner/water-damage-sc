@@ -23,8 +23,6 @@ summaryText: Beaufort homeowners need to know their water damage risks and how
 
 Beaufort with its beautiful waterfront and rich history can be prone to water damage from heavy rain and flooding. Here’s our water damage Beaufort guide.
 
-
-
 ## 24/7 Water Damage Beaufort, SC
 
 When the Carter’s found their home flooded after a recent storm they called our 24/7 water damage service. We arrived quickly to start the extraction and drying process. We know how time sensitive water damage is and we’re here to help! Call us! 
@@ -33,21 +31,16 @@ When the Carter’s found their home flooded after a recent storm they called ou
 
 ## Water Damage Risks in Beaufort Homes
 
-Beaufort’s coastal location brings unique water damage risks, storm surges and flooding. The Wilson’s home was hit by a storm tide and they had significant damage. We helped them through the process and implemented measures to prevent future damage. Knowing the risks is key for homeowners.
-
-
+Beaufort’s coastal location brings unique water damage risks, storm surges and flooding. The Wilson’s home was hit by a storm tide and they had significant damage. We helped them through the process and implemented measures to prevent future damage. Knowing the risks is key for homeowners. 
+Read our [preventative guide](<>) specific to climate changes in South Carolina
 
 ## Mold Prevention and Remediation After Water Damage Beaufort, SC
 
 Mold can become a problem fast after water damage, especially in humid climates like Beaufort. The Garcia’s called us when they found mold in their home after a leak. We provided them with remediation and prevention strategies to protect their property. If you have water damage we can help prevent mold growth!
 
-
-
 ## What to Do After Water Infiltration in Beaufort
 
 After water infiltration, time is of the essence to minimize damage. The Henderson’s learned this when they found a leak from their dishwasher. They called us right away and we guided them through the process to prevent further problems. Quick action is key to restoration! G
-
-
 
 ## How to Find Water Damage Restoration Beaufort
 

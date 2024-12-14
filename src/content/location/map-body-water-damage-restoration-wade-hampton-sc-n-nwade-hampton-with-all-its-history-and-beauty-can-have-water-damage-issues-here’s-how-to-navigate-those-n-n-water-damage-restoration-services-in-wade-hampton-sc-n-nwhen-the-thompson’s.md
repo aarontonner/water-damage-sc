@@ -30,7 +30,7 @@ When the Thompson’s basement flooded from heavy rain they called us. Our emerg
 
 Residents should be aware of the following common causes of water damage:
 
-* Heavy Rainfall and Flash Flooding: The area can get hit with intense storms that cause flash flooding especially in low lying areas.
+* [Heavy Rainfall and Flash Flooding](/blog/the-impact-of-south-carolina's-climate-on-water-damage-risks-and-prevention-strategies/): The area can get hit with intense storms that cause flash flooding especially in low lying areas.
 * Aging Infrastructure: Many homes in Wade Hampton have older plumbing systems that leak, the Martinez’s found out when their pipe burst.
 * Roof Leaks: Heavy rain and old roofs equals water in the home, ceilings and walls.
 

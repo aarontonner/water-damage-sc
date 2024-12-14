@@ -26,8 +26,6 @@ summaryText: When water damage strikes in Ladson, SC, fast and reliable
 
 Just outside of Charleston, Ladson is a growing community that deals with water damage issues more often during the rainy season. Here’s your resource for water damage restoration in Ladson.
 
-
-
 ## 24/7 Water Damage Restoration in Ladson, SC
 
 When the Hernandez’s woke up in the middle of the night to a pipe burst, they felt lost. They called our 24/7 water damage restoration and we arrived quick to assess and contain the damage. We know time is of the essence with water damage so we’re always ready to help. Call us! 
@@ -36,15 +34,11 @@ When the Hernandez’s woke up in the middle of the night to a pipe burst, they 
 
 ## Water Damage Risks in Ladson Homes
 
-In Ladson older homes may have outdated plumbing that’s a big risk. The Robinson’s found this out when they had a slow leak that went unnoticed for weeks and caused extensive damage. Our experts helped them identify the problem and implement a fix. Regular inspections can help you catch issues before they become big problems.
-
-
+In Ladson older homes may have outdated plumbing that’s a big risk. The Robinson’s found this out when they had a slow leak that went unnoticed for weeks and caused extensive damage. Our experts helped them identify the problem and implement a fix. Regular inspections can help you catch issues before they become big problems, while also finding opportunities for [preventative measures against South Carolina's weather](/blog/the-impact-of-south-carolina's-climate-on-water-damage-risks-and-prevention-strategies/) impacts on basement and home flooding.
 
 ## Mold Remediation and Prevention After Water Damage in Ladson
 
 Mold can grow fast in Ladson’s humidity. After a flood the Taylor’s called us for mold remediation. We not only removed the mold but educated them on how to maintain low humidity and proper ventilation to prevent future growth.
-
-
 
 ## What to Do When You Have Water Damage in Ladson, SC
 
@@ -55,8 +49,6 @@ If you have water damage, knowing what to do can help. The Smith’s acted fast 
 ## How to Find Water Damage Restoration Companies in Ladson
 
 Choosing a restoration company can be tough. The Jones’s faced this decision after a flood. They chose us based on our reputation and local presence. We provided thorough assessments and quick service so their home was restored right. 
-
-
 
 ## Water Damage Restoration in Ladson, SC FAQs
 

@@ -31,7 +31,7 @@ We respond fast to water damage. When the Harris family had a busted pipe they c
 
 Homeowners should be aware of these common causes of water damage:
 
-* Heavy Rain and Flooding: The Taylor’s had water damage after a big rainstorm flooded their basement.
+* [Heavy Rain and Flooding](/blog/the-impact-of-south-carolina's-climate-on-water-damage-risks-and-prevention-strategies/): The Taylor’s had water damage after a big rainstorm flooded their basement.
 * Plumbing Failures: Old plumbing can fail and leak.
 
 Knowing these risks can help you prevent future occurrences.

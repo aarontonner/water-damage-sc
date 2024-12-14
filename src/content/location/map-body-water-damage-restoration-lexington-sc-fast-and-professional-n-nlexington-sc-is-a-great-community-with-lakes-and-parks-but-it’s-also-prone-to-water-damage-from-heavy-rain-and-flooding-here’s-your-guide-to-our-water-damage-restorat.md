@@ -26,37 +26,25 @@ summaryText: When water damage hits your Lexington, SC home, fast and
 
 Lexington, SC is a great community with lakes and parks but it’s also prone to water damage from heavy rain and flooding. Here’s your guide to our water damage restoration services in Lexington.
 
-
-
 ## Fast Water Damage Restoration in Lexington, SC
 
-When the Wilson’s kitchen flooded after a storm they were overwhelmed. They called us and we arrived within an hour to assess the damage. We got to work extracting water and starting the restoration process. Our fast response is what sets us apart in Lexington. Call us! (843) 547-3714](tel:8435473714)
-
-
+When the Wilson’s kitchen flooded after a storm they were overwhelmed. They called us and we arrived within an hour to assess the damage. We got to work extracting water and starting the restoration process. Our fast response is what sets us apart in Lexington. Call us! [(843) 547-3714](tel:8435473714)
 
 ## How to Handle Water Damage from Storms in Lexington
 
-Lexington gets hit with severe storms that can cause a lot of water damage. The Johnson’s found out when their home flooded after a big storm. We helped them assess the damage and fix what was needed to make their home safe and dry. 
-
-
+[Lexington gets hit with severe storms](/blog/the-impact-of-south-carolina's-climate-on-water-damage-risks-and-prevention-strategies/) that can cause a lot of water damage. The Johnson’s found out when their home flooded after a big storm. We helped them assess the damage and fix what was needed to make their home safe and dry. 
 
 ## Mold Removal Services After Water Damage in Lexington, SC
 
 Mold can be a big problem after water damage. The Roberts’ found out after a leak in their home. They called us for mold removal and our experts got to work fast to remove the mold and prevent future growth. We gave them tips on how to maintain proper ventilation and humidity levels in their home. 
 
-
-
 ## What to Expect During Water Damage Restoration in Lexington
 
 Knowing the process can ease your mind. After the flood the Brown’s had a lot of questions. We walked them through every step from assessment to cleanup to repairs. Our team will keep you informed and comfortable throughout the restoration process. Give us a call! (843) 547-3714](tel:8435473714)
 
-
-
 ## Water Damage Restoration Companies in Lexington, SC
 
 When choosing a restoration company it’s all about reputation and experience. The Martinez’s had a lot of water damage and chose us based on our good reviews and local presence. We did a thorough assessment and provided effective restoration services to get them back up and running fast. 
-
-
 
 ## How to Prevent Water Damage in Lexington, SC
 

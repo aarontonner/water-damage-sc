@@ -29,8 +29,6 @@ summaryText: When water damage strikes in Summerville, SC, fast action is
 
 Just outside of Charleston, Summerville is known for its parks and historic charm. But Summerville isn’t immune to water damage, especially during storm season. Here’s what you need to know about our water damage restoration services in Summerville, SC.
 
-
-
 ## Emergency Water Damage Restoration in Summerville, SC
 
 After a big rainstorm the McCoy’s basement flooded. They called us and we responded quick with our emergency water damage restoration services. We got on site within an hour to assess the damage, remove standing water and start the drying process. We know water damage can get out of hand fast, so we’re available 24/7 to help residents recover fast. Call us!
@@ -39,15 +37,11 @@ After a big rainstorm the McCoy’s basement flooded. They called us and we resp
 
 ## What to Do with Water Damage from Storms in Summerville
 
-Storms bring heavy rain and water damage to homes in Summerville. The Brown’s found out the hard way when their roof was damaged in a summer storm and water started leaking into their living room. We responded quickly by tarping the roof to prevent further damage and started water extraction and cleanup. Knowing what to do after a storm can help minimize damage. 
-
-
+Storms bring [heavy rain and water damage](/blog/the-impact-of-south-carolina's-climate-on-water-damage-risks-and-prevention-strategies/) to homes in Summerville. The Brown’s found out the hard way when their roof was damaged in a summer storm and water started leaking into their living room. We responded quickly by tarping the roof to prevent further damage and started water extraction and cleanup. Knowing what to do after a storm can help minimize damage. 
 
 ## Mold Prevention Tips After Water Damage in Summerville, SC
 
 In the humid climate of Summerville mold growth after water damage is a big concern. After a pipe burst the Roberts’ noticed a musty smell in their home. We removed the damaged materials and installed dehumidifiers to dry the space completely. We also gave them tips on keeping air circulation high and humidity below 50%. 
-
-
 
 ## Water Damage Restoration Time is of the Essence
 
@@ -58,8 +52,6 @@ When it comes to water damage, time is of the essence. The Wilson’s who live n
 ## Best Water Damage Restoration in Summerville, SC
 
 Picking the right water damage restoration company can be tough. When the Stevens’ had flooding they researched local companies and chose us because of our customer satisfaction guarantee. Our certified technicians provided full restoration services and worked with their insurance company to facilitate the claims process. Looking for reliable restoration services? 
-
-
 
 ## Water Damage Restoration FAQs in Summerville
 

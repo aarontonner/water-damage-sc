@@ -22,8 +22,6 @@ Water Damage Restoration Five Forks, SC: We’ve Got You Covered
 
 Five Forks is a great place to live in South Carolina but it can also get water damage. Here’s what you need to know about water damage restoration in this area.
 
-
-
 ## Emergency Water Damage Restoration in Five Forks, SC
 
 When the Brown’s had a leak in their kitchen they called our emergency water damage restoration service. We came out, assessed the damage and started the extraction process. We want to give you peace of mind in a stressful situation. Quick response is key for Five Forks residents. Give us a call! 
@@ -32,9 +30,7 @@ When the Brown’s had a leak in their kitchen they called our emergency water d
 
 ## Water Damage Scenarios in Five Forks Homes
 
-Five Forks homes can experience water damage from many sources, plumbing failures, heavy rain, flooding. For example the Thompson’s found water damage in their basement after a big storm. Knowing these common scenarios can help homeowners take preventative measures.
-
-
+Five Forks homes can experience water damage from many sources, plumbing failures, heavy rain, flooding, and [severe climate changes](/blog/the-impact-of-south-carolina's-climate-on-water-damage-risks-and-prevention-strategies/). For example the Thompson’s found water damage in their basement after a big storm. Knowing these [common flood risks](/blog/the-impact-of-south-carolina's-climate-on-water-damage-risks-and-prevention-strategies/) can help homeowners take preventative measures.
 
 ## Mold Prevention Tips After Water Damage in Five Forks, SC
 
@@ -46,13 +42,9 @@ Mold is a big concern after water damage especially in humid climates. The Johns
 
 If you have water damage, knowing what to do is key. The Parker’s found themselves in a tough spot when they found water in their bathroom. They turned off the water supply and called us and we guided them through the process.
 
-
-
 ## How to Choose a Water Damage Restoration Company in Five Forks
 
 Choosing a restoration company can be overwhelming. The Smith’s chose us because of our local presence and customer service. We did thorough assessments and provided effective restoration services so they felt supported every step of the way.
-
-
 
 ## Water Damage Restoration Costs in Five Forks, SC
 

@@ -34,7 +34,7 @@ When heavy rain caused a flash flood in the Martinez’s home, they called us. O
 
 ## How to Handle Water Damage from Floods in West Columbia
 
-Floods can be a big problem here. After the Johnson’s had a flood, we provided full restoration services including:
+[Floods caused by weather](/blog/the-impact-of-south-carolina's-climate-on-water-damage-risks-and-prevention-strategies/) can be a big problem here. After the Johnson’s had a flood, we provided full restoration services including:
 
 * Rapid Water Extraction: To prevent further structural damage.
 * Drying and Dehumidification: To prevent mold growth.

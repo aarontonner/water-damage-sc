@@ -26,8 +26,6 @@ summaryText: When water damage hits your Anderson, SC home, fast and
 
 Anderson, SC has beautiful lakes and a community. But water damage can happen to anyone. Here’s your guide to our water damage restoration services in Anderson.
 
-
-
 ## 24/7 Water Damage Restoration in Anderson, SC
 
 When a pipe burst in the Miller’s house on a freezing night they were in a stressful situation. But they knew they could count on our 24/7 water damage restoration services. We got there fast to mitigate the damage and start the restoration process. Call us!
@@ -36,15 +34,11 @@ When a pipe burst in the Miller’s house on a freezing night they were in a str
 
 ## Water Damage Risks in Anderson Homes
 
-In Anderson, old homes and heavy rain can create water damage risks. The Johnson’s found out when their basement flooded during a big rain storm. We did a thorough inspection to identify vulnerabilities and recommend prevention. Knowing the risks to your property can help you prevent damage.
-
-
+In Anderson, old homes and heavy rain can create water damage risks. The Johnson’s found out when their basement flooded during a big rain storm. We did a thorough inspection to identify vulnerabilities and recommend prevention. Knowing the risks, including[ climate and weather risks](/blog/the-impact-of-south-carolina's-climate-on-water-damage-risks-and-prevention-strategies/) to your property can help you prevent damage.
 
 ## Mold Removal and Prevention after Water Damage in Anderson, SC
 
 After the Smith’s home was damaged by water from a leaky roof they called us right away. We provided mold removal services and educated them on the importance of drying the affected areas quickly. Our team used state of the art techniques to make sure their home was mold free and safe for their family. 
-
-
 
 ## Steps to Mitigate Damage After Water Infiltration in Anderson
 
@@ -55,8 +49,6 @@ When Mrs. Green found water in her kitchen she did the right thing: she turned o
 ## Why Go Professional with Water Damage Restoration in Anderson
 
 The Jones’s found out the hard way why professional water damage restoration is important. After they tried to DIY a flooded basement they ended up causing more damage. Our team arrived to assess the situation and we provided full restoration services that a DIY couldn’t. Going professional means the job gets done right the first time.
-
-
 
 ## Cost of Water Damage Restoration in Anderson, SC
 

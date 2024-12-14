@@ -31,7 +31,7 @@ The Johnson’s were enjoying a beach day when they returned to find their groun
 
 ## Common Causes of Water Damage in Hilton Head Homes
 
-In Hilton Head, water damage comes from heavy rain, storm surges and even humidity related leaks. For example the Smith’s found a leak in their roof after a big rain storm and had extensive water damage in their attic. Knowing these common causes helps homeowners take preventative measures before disasters happen.
+In Hilton Head, [water damage comes from heavy rain](/blog/the-impact-of-south-carolina's-climate-on-water-damage-risks-and-prevention-strategies/), storm surges and even humidity related leaks. For example the Smith’s found a leak in their roof after a big rain storm and had extensive water damage in their attic. Knowing these common causes helps homeowners take preventative measures before disasters happen.
 
 ## Preventing Mold Growth After Water Damage in Hilton Head, SC
 

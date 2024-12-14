@@ -23,27 +23,19 @@ summaryText: Aiken homeowners need to be aware of their water damage risks and
 
 Aiken is rich in history and beautiful landscapes but can also get water damage from heavy rain and flooding. Here’s our water damage services in Aiken.
 
-
-
 ## Emergency Water Damage Services in Aiken, SC
 
 When the Thompson’s home flooded after a sudden rainstorm they called us. We arrived on site to assess the damage and started the restoration process. We’re 24/7 so Aiken residents have help when they need it. Call us! 
 
 [(843) 547-3714](tel:8435473714)
 
-
-
 ## Common Water Damage Causes in Aiken Homes
 
-In Aiken, common causes of water damage are heavy rain, broken pipes and even appliance malfunction. The Johnson’s had a big problem when their washing machine leaked and damaged their laundry room. We helped them fix the issue and prevent future occurrences. Knowing these risks can help homeowners take preventive measures.
-
-
+In Aiken, common causes of water damage are heavy rain, broken pipes and even appliance malfunction. Climate also has a significant impact on flood risks in Aiken. Read our [preventative guide](/blog/the-impact-of-south-carolina's-climate-on-water-damage-risks-and-prevention-strategies/) specific to climate changes in South Carolina. The Johnson’s had a big problem when their washing machine leaked and damaged their laundry room. We helped them fix the issue and prevent future occurrences. Knowing these risks can help homeowners take preventive measures.
 
 ## Mold Removal and Prevention After Water Damage in Aiken, SC
 
 Mold is a big problem after water damage. The Martinez’s called us after they found mold in their home after a leak. We provided full mold removal services and shared tips on how to prevent future growth, like proper ventilation. 
-
-
 
 ## What to Expect During Water Damage Restoration
 
@@ -51,13 +43,9 @@ Knowing what to expect can help alleviate your worries. The Parker’s had many 
 
 [(843) 547-3714](tel:8435473714)
 
-
-
 ## Choosing the Right Restoration Company in Aiken, SC
 
 Choosing the right company is key to a successful recovery. The Lewis’s faced this dilemma and chose us because of our local reputation and commitment to quality. We provided full assessments and open communication throughout the restoration process. 
-
-
 
 ## Water Damage Restoration Costs in Aiken
 

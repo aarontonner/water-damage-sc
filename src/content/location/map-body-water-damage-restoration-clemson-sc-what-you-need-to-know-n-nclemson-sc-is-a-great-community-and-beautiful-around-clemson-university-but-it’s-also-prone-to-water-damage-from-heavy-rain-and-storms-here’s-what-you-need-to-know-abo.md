@@ -22,8 +22,6 @@ summaryText: "  Clemson homeowners need to be aware of the sources of water
 
 Clemson, SC is a great community and beautiful around Clemson University. But it’s also prone to water damage from heavy rain and storms. Here’s what you need to know about restoration services in the area.
 
-
-
 ## Emergency Water Damage Restoration in Clemson, SC
 
 When a storm hit Clemson, the Johnson’s got home and found their basement flooded. They called our emergency water damage restoration service. We showed up in an hour and assessed and mitigated the damage. This quick response is key to preventing further damage to homes in Clemson. 
@@ -32,15 +30,11 @@ When a storm hit Clemson, the Johnson’s got home and found their basement floo
 
 ## Common Sources of Water Damage in Clemson Homes
 
-Clemson homes are prone to water damage from roof leaks, plumbing problems and heavy rain flooding. For example, the Parker’s found a leaky pipe in their bathroom that had already caused significant damage before they noticed. Knowing these common sources can help homeowners take preventative measures.
-
-
+Clemson homes are prone to water damage from roof leaks, plumbing problems and heavy rain flooding. For example, the Parker’s found a leaky pipe in their bathroom that had already caused significant damage before they noticed. Knowing these [common flood risks in SC](/blog/the-impact-of-south-carolina's-climate-on-water-damage-risks-and-prevention-strategies/) can help homeowners take preventative measures.
 
 ## Preventing Mold After Water Damage in Clemson, SC
 
 With Clemson’s humidity, mold can grow fast after water damage. The Thompson’s found mold in their basement after a leak went unattended. We provided full mold remediation services and taught them how to use dehumidifiers and make sure good ventilation to prevent future mold issues.
-
-
 
 ## What to Do Immediately After Water Damage in Clemson
 
@@ -51,8 +45,6 @@ If you have water damage, you need to act fast. The Smith’s found water in the
 ## How to Choose the Best Water Damage Restoration Company in Clemson
 
 Choosing a restoration company can be tough. The Wilson’s chose us based on our local reputation and customer service. They liked our clear communication and detailed reports throughout the process. Looking for a trusted partner in Clemson? We’re here to help!
-
-
 
 ## Water Damage Restoration Costs in Clemson, SC
 

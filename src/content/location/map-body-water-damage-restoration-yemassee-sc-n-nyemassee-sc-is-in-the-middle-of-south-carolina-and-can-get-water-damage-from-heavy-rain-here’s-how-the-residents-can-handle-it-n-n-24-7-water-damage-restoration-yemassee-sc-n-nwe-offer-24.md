@@ -26,7 +26,7 @@ Yemassee, SC is in the middle of South Carolina and can get water damage from he
 
 ## 24/7 Water Damage Restoration Yemassee, SC
 
-We offer 24/7 services. When the Miller’s had a flooding issue from a nearby creek our team was on site in no time to assess the damage. In Yemassee where storms can cause flooding to happen suddenly having a trusted restoration service is key.
+We offer 24/7 services. When the Miller’s had a flooding issue from a nearby creek our team was on site in no time to assess the damage. In [Yemassee where storms can cause flooding](/blog/the-impact-of-south-carolina's-climate-on-water-damage-risks-and-prevention-strategies/) to happen suddenly having a trusted restoration service is key.
 
 ## Water Damage Risks in Yemassee Homes
 

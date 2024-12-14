@@ -29,7 +29,7 @@ North Augusta, right on the Savannah River, has its own set of water damage issu
 
 ## 24/7 Water Damage Restoration North Augusta, SC
 
-us offers 24/7 water damage restoration. When the Wilson’s pipe burst after a big rainstorm they called us right away. Our rapid response team showed up to assess the damage and start the process, why quick matters.
+us offers 24/7 water damage restoration. When the Wilson’s pipe burst after a [big rainstorm](/blog/the-impact-of-south-carolina's-climate-on-water-damage-risks-and-prevention-strategies/) they called us right away. Our rapid response team showed up to assess the damage and start the process, why quick matters.
 
 ## Water Damage Risks in North Augusta Homes
 

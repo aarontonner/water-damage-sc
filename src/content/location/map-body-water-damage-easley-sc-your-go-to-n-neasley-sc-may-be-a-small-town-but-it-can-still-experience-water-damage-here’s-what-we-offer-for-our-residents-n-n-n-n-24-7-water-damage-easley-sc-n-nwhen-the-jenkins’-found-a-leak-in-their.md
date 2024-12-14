@@ -20,25 +20,19 @@ summaryText: "  Easley homeowners need to know their water damage risks and what
 
 Easley, SC may be a small town but it can still experience water damage. Here’s what we offer for our residents.
 
-
-
 ## 24/7 Water Damage Easley, SC
 
 When the Jenkins’ found a leak in their roof after a storm they called our 24/7 water damage service. We got there right away to assess and fix the damage and be there for them during a tough time.
 
-
-
 ## Water Damage Risks in Easley Homes
 
-Homes in Easley can experience water damage from many sources, plumbing issues and severe weather. For example the Davis’ had significant water damage when a pipe burst in their bathroom. Knowing these common causes can help homeowners be proactive. Give us a call!
+Homes in Easley can experience water damage from many sources, plumbing issues and [severe weather](/blog/the-impact-of-south-carolina's-climate-on-water-damage-risks-and-prevention-strategies/). For example the Davis’ had significant water damage when a pipe burst in their bathroom. Knowing these common causes can help homeowners be proactive. Give us a call!
 
 [(843) 547-3714](tel:8435473714)
 
 ## How to Prevent Mold After Water Damage in Easley, SC
 
 Preventing mold is key after water damage especially in Easley’s humid climate. The Roberts’ had mold growth after a leak went unnoticed. We provided full mold remediation services and practical tips to prevent future growth such as proper ventilation and humidity control.
-
-
 
 ## What to Do When You Have Water Damage in Easley
 
@@ -49,8 +43,6 @@ Knowing what to do is key after water damage happens. The Martinez’s acted fas
 ## Where to Find Water Damage Restoration in Easley
 
 Finding a reputable company can be tough. The Wilson’s found us through local referrals and appreciated our commitment to quality. We gave them a full assessment and effective restoration and were there for them the whole way.
-
-
 
 ## Water Damage Restoration Easley, SC FAQs
 
