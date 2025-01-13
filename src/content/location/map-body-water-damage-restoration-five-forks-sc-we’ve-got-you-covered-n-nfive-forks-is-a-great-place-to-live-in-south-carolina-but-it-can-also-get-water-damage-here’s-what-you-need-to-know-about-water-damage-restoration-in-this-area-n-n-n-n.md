@@ -36,7 +36,7 @@ Five Forks homes can experience water damage from many sources, plumbing failure
 
 Mold is a big concern after water damage especially in humid climates. The Johnson’s had mold growth after a leak went unnoticed. We provided mold remediation services and gave them tips on how to maintain low humidity and good ventilation to prevent future issues. Call us! 
 
-[(843) 547-3714](tel:8435473714)[(843) 547-3714](tel:8435473714)
+[(843) 547-3714](tel:8435473714)[](tel:8435473714)
 
 ## What to Do for Water Damage Restoration in Five Forks
 

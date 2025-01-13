@@ -2406,39 +2406,6 @@
   #content-page-848 p:last-of-type {
     margin-bottom: 2rem;
   }
-  #content-page-848 p a {
-    font-size: 1rem;
-    font-weight: 700;
-    /* 46px - 56px */
-    line-height: clamp(2.875rem, 5.5vw, 3.5rem);
-    text-align: center;
-    text-decoration: none;
-    min-width: 9.375rem;
-    margin: 0;
-    /* prevents padding from adding to the width */
-    box-sizing: border-box;
-    padding: 0 1.5rem;
-    color: #fff;
-    background-color: var(--primary);
-    display: inline-block;
-    position: relative;
-    z-index: 1;
-  }
-  #content-page-848 p a:before {
-    content: "";
-    width: 0%;
-    height: 100%;
-    background: #000;
-    opacity: 1;
-    position: absolute;
-    top: 0;
-    left: 0;
-    z-index: -1;
-    transition: width 0.3s;
-  }
-  #content-page-848 p a:hover:before {
-    width: 100%;
-  }
   #content-page-848 ol,
   #content-page-848 ul {
     padding-left: 1.5rem;
